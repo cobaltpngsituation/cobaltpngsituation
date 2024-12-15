@@ -15,7 +15,7 @@ $\text{\color{#0047ab}{﹙🏰﹚}}$
 $\text{\color{#0047ab}{Cobalt , she / her}}$
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/4ek64na.png" />
+  <img src="https://i.imgur.com/q2jpJVA.png" />
 </p>
 <p align="center">
 $\text{\color{#0047ab}{╰➤ art by me}}$
