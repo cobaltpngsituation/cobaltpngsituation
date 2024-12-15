@@ -10,5 +10,5 @@
 </p>
 
 <p align="center">
-  <img src="[[http://some_place.com/image.png](https://64.media.tumblr.com/9742fa0b8c64b87145d513d7c972c9ed/ca9a377942aa49e9-24/s400x600/d05216c2ddbb6761e2807d92c9db6b82a016416d.pnj](https://i.imgur.com/VAgdhAS.png))" />
+  <img src="[(https://64.media.tumblr.com/9742fa0b8c64b87145d513d7c972c9ed/ca9a377942aa49e9-24/s400x600/d05216c2ddbb6761e2807d92c9db6b82a016416d.pnj](https://i.imgur.com/VAgdhAS.png))" />
 </p>
