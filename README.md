@@ -26,7 +26,7 @@ $\text{\color{#0047ab}{ᴍᴏɴ ᴀᴍᴏᴜʀ 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 �
 </p>
 
 <p align="center">
-$\text{\color{#0047ab}{Bluesky: @coballtblue.bsky.social , Instagram: emmathefootsoldier , Twitter: @cobaltpng , YT channel: @Coballtblue}}$
+$\text{\color{#0047ab}{ʙʟᴜᴇsᴋʏ: @ᴄᴏʙᴀʟʟᴛʙʟᴜᴇ.ʙsᴋʏ.sᴏᴄɪᴀʟ , ɪɴsᴛᴀɢʀᴀᴍ: ᴇᴍᴍᴀᴛʜᴇғᴏᴏᴛsᴏʟᴅɪᴇʀ , ᴛᴡɪᴛᴛᴇʀ: @ᴄᴏʙᴀʟᴛᴘɴɢ , ʏᴛ ᴄʜᴀɴɴᴇʟ: @ᴄᴏʙᴀʟʟᴛʙʟᴜᴇ}}$
 </p>
 
 
