@@ -14,7 +14,7 @@
 </p>
 
 <p align="center">
-<code style="color : #0047ab">﹙🏰﹚</code>
+<code style="color : cobalt">﹙🏰﹚</code>
 </p>
 
 
