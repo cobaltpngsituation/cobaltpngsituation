@@ -18,24 +18,16 @@ $\text{\color{#0047ab}{﹙🏰﹚}}$
 </p>
 
 <p align="center">
-$\text{\color{#0047ab}{ᴄᴏʙᴀʟᴛ , sʜᴇ / ʜᴇʀ}}$
+$\text{\color{#0047ab}{Cobalt , she / her}}$
 </p>
 
 <p align="center">
-$\text{\color{#0047ab}{ᴍᴏɴ ᴀᴍᴏᴜʀ 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 💜}}$
+$\text{\color{#0047ab}{Mon amour 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 💜}}$
 </p>
 
 <p align="center">
-$\text{\color{#0047ab}{ʙʟᴜᴇsᴋʏ: @ᴄᴏʙᴀʟʟᴛʙʟᴜᴇ.ʙsᴋʏ.sᴏᴄɪᴀʟ , ɪɴsᴛᴀɢʀᴀᴍ: ᴇᴍᴍᴀᴛʜᴇғᴏᴏᴛsᴏʟᴅɪᴇʀ}}$
+$\text{\color{#0047ab}{Bluesky: @coballtblue.bsky.social , Instagram: emmathefootsoldier}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{ᴛᴡɪᴛᴛᴇʀ: @ᴄᴏʙᴀʟᴛᴘɴɢ , ʏᴛ ᴄʜᴀɴɴᴇʟ: @ᴄᴏʙᴀʟʟᴛʙʟᴜᴇ}}$
+$\text{\color{#0047ab}{Twitter: @cobaltpng , YT channel: @Coballtblue}}$
 </p>
-
-
-
-
-
-
-
-
