@@ -14,9 +14,7 @@
 </p>
 
 <p align="center">
-  
 $\text{\color{#0047ab}{﹙🏰﹚}}$
-  
 </p>
 
 
