@@ -1,6 +1,3 @@
-@settings { 
-  font-size: 100;
-}
 
 <p align="center">
 $\text{\color{#0047ab}{˚.⋆﹙ Now Playing ﹚⋆.˚}}$
