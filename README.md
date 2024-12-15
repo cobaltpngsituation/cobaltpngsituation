@@ -24,11 +24,5 @@ $\text{\color{#0047ab}{╰➤ art by me}}$
 $\text{\color{#0047ab}{Mon amour 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 💜}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{Bluesky: @coballtblue.bsky.social , Instagram: emmathefootsoldier}}$
-</p>
-<p align="center">
-$\text{\color{#0047ab}{Twitter: @cobaltpng , YT channel: @Coballtblue}}$
-</p>
-<p align="center" width="50" height="50">
-  <img src="https://i.imgur.com/d0HoE9a.png" />
+$\text{\color{#0047ab}{Bluesky: @coballtblue.bsky.social , Instagram: emmathefootsoldier , Twitter: @cobaltpng , YT channel: @Coballtblue}}$
 </p>
