@@ -8,9 +8,6 @@ $\text{\color{#0047ab}{˚.⋆﹙ Now Playing ﹚⋆.˚}}$
   <img src="https://i.imgur.com/d0HoE9a.png" />
 </p>
 <p align="center">
-$\text{\color{#0047ab}{﹙🏰﹚}}$
-</p>
-<p align="center">
 $\text{\color{#0047ab}{Cobalt , she / her}}$
 </p>
 <p align="center">
