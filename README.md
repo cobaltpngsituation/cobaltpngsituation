@@ -15,13 +15,7 @@
 
 <p align="center">
 $\text{\color{#0047ab}{﹙🏰﹚}}$
-$\text{\color{#0047ab}{ᴄᴏʙᴀʟᴛ}}$
-</p>
-
-<p align="center" width="100%"
-
-$\text{\color{#0055cc}{[she](https://pronouns.cc/@c.balt)}}$ $\text{\color{#0047ab}{/ her}}$
-
+$\text{\color{#0047ab}{ᴄᴏʙᴀʟᴛ , sʜᴇ / ʜᴇʀ}}$
 </p>
 
 
