@@ -1,3 +1,9 @@
+html,
+body,
+app-root,
+.app-frame {
+  font-family: "BadaBoom_BB";
+}
 
 <p align="center">
 $\text{\color{#0047ab}{˚.⋆﹙ Now Playing ﹚⋆.˚}}$
