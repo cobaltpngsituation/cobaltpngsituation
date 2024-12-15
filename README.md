@@ -8,7 +8,7 @@ $\text{\color{#0047ab}{˚.⋆﹙ Now Playing ﹚⋆.˚}}$
 
 </p>
 
-<p align="center" width="50" height="50">
+<p align="center">
   <img src="https://i.imgur.com/d0HoE9a.png" />
 </p>
 
@@ -20,8 +20,8 @@ $\text{\color{#0047ab}{﹙🏰﹚}}$
 $\text{\color{#0047ab}{Cobalt , she / her}}$
 </p>
 
-<p align="center" width="50" height="50">
-  <img src="https://i.imgur.com/RPiR1Iv.png" />
+<p align="center">
+  <img src="https://i.imgur.com/4ek64na.png" />
 </p>
 <p align="center">
 $\text{\color{#0047ab}{Art by me}}$
