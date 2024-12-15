@@ -13,6 +13,6 @@
   <img src="https://i.imgur.com/d0HoE9a.png" />
 </p>
 
-<code style="color : #0047ab">Bienvenue</code>
+  $\text{\color{#0047ab}{﹙🏰﹚}}$
 
 
