@@ -13,6 +13,11 @@
   <img src="https://i.imgur.com/d0HoE9a.png" />
 </p>
 
-  $\text{\color{#0047ab}{﹙🏰﹚}}$
+<p align="center">
+  
+$\text{\color{#0047ab}{﹙🏰﹚}}$
+  
+</p>
+
 
 
