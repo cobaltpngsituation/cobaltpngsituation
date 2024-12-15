@@ -21,6 +21,16 @@ $\text{\color{#0047ab}{﹙🏰﹚}}$
 $\text{\color{#0047ab}{ᴄᴏʙᴀʟᴛ , sʜᴇ / ʜᴇʀ}}$
 </p>
 
+<p align="center">
+$\text{\color{#0047ab}{ᴍᴏɴ ᴀᴍᴏᴜʀ 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 💜}}$
+</p>
+
+<p align="center">
+$\text{\color{#0047ab}{Bluesky: @coballtblue.bsky.social , Instagram: emmathefootsoldier , Twitter: @cobalt_png , YT channel: @Coballtblue}}$
+</p>
+
+
+
 
 
 
