@@ -20,6 +20,13 @@ $\text{\color{#0047ab}{﹙🏰﹚}}$
 $\text{\color{#0047ab}{Cobalt , she / her}}$
 </p>
 
+<p align="center" width="50" height="50">
+  <img src="https://i.imgur.com/RPiR1Iv.png" />
+</p>
+<p align="center">
+$\text{\color{#0047ab}{Art by me}}$
+</p>
+
 <p align="center">
 $\text{\color{#0047ab}{Mon amour 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 💜}}$
 </p>
