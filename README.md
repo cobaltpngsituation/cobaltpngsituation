@@ -24,7 +24,7 @@ $\text{\color{#0047ab}{Cobalt , she / her}}$
   <img src="https://i.imgur.com/4ek64na.png" />
 </p>
 <p align="center">
-$\text{\color{#0047ab}{╰➤ Art by me}}$
+$\text{\color{#0047ab}{╰➤ art by me}}$
 </p>
 
 <p align="center">
