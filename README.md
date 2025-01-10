@@ -1,5 +1,5 @@
 <p align="center">
-$\text{\color{#0047ab}{˚.⋆﹙ Now Playing ﹚⋆.˚}}$
+$\text{\color{#0047ab}{☾ ⋮ Now Playing ⸝⸝}}$
 </p>
 <p align="center" width="100%"
 
