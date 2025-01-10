@@ -3,7 +3,7 @@ $\text{\color{#0047ab}{˚.⋆﹙ Now Playing ﹚⋆.˚}}$
 </p>
 <p align="center" width="100%"
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=0047ab)](https://github.com/kittinan/spotify-github-profile)
 <p align="center">
   <img src="https://i.imgur.com/d0HoE9a.png" />
 </p>
