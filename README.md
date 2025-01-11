@@ -1,6 +1,3 @@
-<p align="center">
-$\text{\color{#0047ab}{☾ ⋮ Now Playing ⸝⸝}}$
-</p>
 <p align="center" width="100%"
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=0047ab&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
