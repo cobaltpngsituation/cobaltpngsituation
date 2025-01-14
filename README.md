@@ -14,7 +14,7 @@ $\text{\color{#0047ab}{Cobalt , she / her}}$
 $\text{\color{#0047ab}{➤ ﹙ ᴀʀᴛ ʙʏ ᴍᴇ ﹚}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{﹙ ᴍᴏɴ ᴀᴍᴏᴜʀ 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 💜 ﹚}}$
+$\text{\color{#0047ab}{﹙ ᴍᴏɴ ᴀᴍᴏᴜʀ 💙 10/24/20 💜 ﹚}}$
 </p>
 <p align="center">
   <img src="https://i.imgur.com/Pv7phcW.png" />
