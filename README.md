@@ -11,10 +11,10 @@ $\text{\color{#0047ab}{Cobalt , she / her}}$
   <img src="https://i.imgur.com/q2jpJVA.png" />
 </p>
 <p align="center">
-$\text{\color{#0047ab}{➤ ﹙ art by me ﹚}}$
+$\text{\color{#0047ab}{➤ ﹙ ᴀʀᴛ ʙʏ ᴍᴇ ﹚}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{﹙ Mon amour 💙 10/24/20 💜 ﹚}}$
+$\text{\color{#0047ab}{﹙ ᴍᴏɴ ᴀᴍᴏᴜʀ 💙 𝟷𝟶/𝟸𝟺/𝟸𝟶 💜 ﹚}}$
 </p>
 <p align="center">
   <img src="https://i.imgur.com/Pv7phcW.png" />
