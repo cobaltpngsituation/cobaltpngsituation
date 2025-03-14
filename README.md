@@ -9,7 +9,7 @@
 $\text{\color{#0047ab}{ ☾ ⋮ Cobalt ⸝⸝}}$
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/NBIqlrk.png" />
+  <img src="https://i.imgur.com/8qrqPvd.png" />
 </p>
 <p align="center">
 $\text{\color{#0047ab}{➤ ﹙ art by me ﹚}}$
