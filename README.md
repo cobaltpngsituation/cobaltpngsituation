@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.imgur.com/Pv7phcW.png" />
+  <img src="https://i.imgur.com/JHEfo3E.png" />
 </p>
 <p align="center" width="100%"
 
@@ -9,17 +9,17 @@
 $\text{\color{#0047ab}{ ☾ ⋮ Cobalt ⸝⸝}}$
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/q2jpJVA.png" />
+  <img src="https://i.imgur.com/NBIqlrk.png" />
 </p>
 <p align="center">
 $\text{\color{#0047ab}{➤ ﹙ art by me ﹚}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{20 ⸝ 12.07 ♐ ⸝ ISFJ ⸝ 6w5}}$
+$\text{\color{#0047ab}{20 / 12.07.04 ⸝ she / her}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{﹙ Mon amour 💙 10.24.20 💜 ﹚}}$
+$\text{\color{#0047ab}{﹙ 💙 D77M 10.24.20 💜 ﹚}}$
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/Pv7phcW.png" />
+  <img src="https://i.imgur.com/JHEfo3E.png" />
 </p>
