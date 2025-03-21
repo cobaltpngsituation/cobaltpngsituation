@@ -15,7 +15,7 @@ $\text{\color{#0047ab}{ ☾ ⋮ Cobalt ⸝⸝}}$
 $\text{\color{#0047ab}{➤ ﹙ art by me ﹚}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{20 / 12.07.04 ⸝ she / her}}$
+$\text{\color{#0047ab}{20 / 12.07.04 ♐ ⸝ she / her}}$
 </p>
 <p align="center">
 $\text{\color{#0047ab}{﹙ 💙 D77M 10.24.20 💜 ﹚}}$
