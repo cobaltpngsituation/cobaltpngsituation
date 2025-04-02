@@ -21,7 +21,7 @@ $\text{\color{#0047ab}{20 / 12.07.04 ♐ ⸝ she / her}}$
 $\text{\color{#0047ab}{﹙ 💙 D77M 10.24.20 💜 ﹚}}$
 </p>
 <p align="center">
-$\text{\color{#0047ab}{﹙ Discord: cobalt.png , [YT Channel](https://www.youtube.com/@Cobalt_png)﹚}}$
+$\text{\color{#0047ab}{﹙ Discord: cobalt.png , YT Channel: @Cobaltpng﹚}}$
 </p>
 <p align="center">
   <img src="https://i.imgur.com/JHEfo3E.png" />
