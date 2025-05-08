@@ -61,29 +61,3 @@ $\text{\color{#0047ab}{• Politic topics (idm hearing abt it, but idrc}}$
 <p align="left">
 $\text{\color{#0047ab}{• The terms "femboy" and "goon"}}$
 </p>
-<p align="left">
-$\text{\color{#0047ab}{﹙ INT ﹚}}$
-</p>
-<p align="left">
-$\text{\color{#0047ab}{ⓘ I am not in any of the following's fandoms ⓘ}}$
-<p align="left">
-$\text{\color{#0047ab}{* = hyperfix.}}$
-</p>
-<p align="left">
-$\text{\color{#0047ab}{﹙ Games﹚}}$
-</p>
-<p align="left">
-$\text{\color{#0047ab}{Amnesia: Justine, Amnesia: The Dark Descent, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Crash Bandicoot, Faith: The Unholy Trinity, Fallout 76, Five Nights At Freddy’s, Fortnite, Garry’s Mod, Garten Of Banban, GTA V, Left 4 Dead 2, Mario, Minecraft, Mortal Kombat, Payday 2, Pizza Tower, Plants Vs. Zombies *, Pokémon, Poppy Playtime, Rayman *, Roblox, Rocket League, Sly Cooper *, Splatoon 2, Team Fortress 2, Terraria}}$
-</p>
-<p align="left">
-$\text{\color{#0047ab}{﹙ Media﹚}}$
-</p>
-<p align="left">
-$\text{\color{#0047ab}{Blue’s Clues, Care Bears, Child’s Play (excluding 2019), Ghost Adventures, Indiana Jones, Monsters Inc., Monsters University, Muppets, Rick and Morty, Sesame Street, Smiling Friends, Star Wars, The Brave Little Toaster, The Wiggles (w/the og cast), Toy Story}}$
-</p>
-<p align="left">
-$\text{\color{#0047ab}{﹙ Misc.﹚}}$
-</p>
-<p align="left">
-$\text{\color{#0047ab}{Canon x oc, casinocore, Chicken Smoothie, creepypastas, clowns, DC, doing voice impressions, dragons *, drawing, Disney, Homestuck, jellyfish, Marvel, oc x oc, pirates, Pixar, SCP, urbex, zombies *}}$
-</p>
