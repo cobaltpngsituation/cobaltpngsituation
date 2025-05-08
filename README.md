@@ -32,7 +32,7 @@ $\text{\color{#0047ab}{• I believe my ocs are alive, feel their own things, ha
 </p>
 <p>
 $\text{\color{#0047ab}{• I have a horrible memory and need refreshers sometimes. I also have trouble explaining things}}$
-$\text{\color{#0047ab}so pls be patient}}$
+$\text{\color{#0047ab}{so pls be patient}}$
 </p>
 </p>
 <p>
