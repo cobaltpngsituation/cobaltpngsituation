@@ -73,7 +73,7 @@ $\text{\color{#0047ab}{* = hyperfix.}}$
 $\text{\color{#0047ab}{﹙ Games﹚}}$
 </p>
 <p align="left">
-$\text{\color{#0047ab}{Amnesia: Justine, Amnesia: The Dark Descent, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Crash Bandicoot, Faith: The Unholy Trinity, Five Nights At Freddy’s, Fortnite, Garry’s Mod, Garten Of Banban, GTA V, Left 4 Dead 2, Mario, Minecraft, Mortal Kombat, Payday 2, Pizza Tower, Plants Vs. Zombies *, Pokémon, Poppy Playtime, Rayman *, Roblox, Rocket League, Sly Cooper *, Splatoon 2, Team Fortress 2, Terraria}}$
+$\text{\color{#0047ab}{Amnesia: Justine, Amnesia: The Dark Descent, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Crash Bandicoot, Faith: The Unholy Trinity, Fallout 76, Five Nights At Freddy’s, Fortnite, Garry’s Mod, Garten Of Banban, GTA V, Left 4 Dead 2, Mario, Minecraft, Mortal Kombat, Payday 2, Pizza Tower, Plants Vs. Zombies *, Pokémon, Poppy Playtime, Rayman *, Roblox, Rocket League, Sly Cooper *, Splatoon 2, Team Fortress 2, Terraria}}$
 </p>
 <p align="left">
 $\text{\color{#0047ab}{﹙ Media﹚}}$
