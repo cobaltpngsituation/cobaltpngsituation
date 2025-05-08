@@ -31,7 +31,8 @@ $\text{\color{#0047ab}{• I believe my ocs are alive, feel their own things, ha
 </p>
 </p>
 <p>
-$\text{\color{#0047ab}{• I have a horrible memory and need refreshers sometimes I also have trouble explaining things so pls be patient}}$
+$\text{\color{#0047ab}{• I have a horrible memory and need refreshers sometimes. I also have trouble explaining things}}$
+$\text{\color{#0047ab}so pls be patient}}$
 </p>
 </p>
 <p>
@@ -46,8 +47,8 @@ $\text{\color{#0047ab}{﹙ DNI ﹚}}$
 [• Basic criteria](https://basic-dni.crd.co/)
 </p>
 <p>
-$\text{\color{#0047ab}{• Countryhumans, Five Nights In Anime, Hazbin Hotel/Helluva Boss,}}$
-$\text{\color{#0047ab}{South Park, The Coffin Of Andy And Leyley}}$
+$\text{\color{#0047ab}{• Countryhumans, Five Nights In Anime, Hazbin Hotel/Helluva Boss, South Park, and}}$
+$\text{\color{#0047ab}{The Coffin Of Andy And Leyley}}$
 </p>
 <p>
 $\text{\color{#0047ab}{• McPig (dev of Pizza Tower) supporters}}$
