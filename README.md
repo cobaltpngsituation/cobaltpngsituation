@@ -46,7 +46,8 @@ $\text{\color{#0047ab}{﹙ DNI ﹚}}$
 [• Basic criteria](https://basic-dni.crd.co/)
 </p>
 <p>
-$\text{\color{#0047ab}{• Countryhumans, Five Nights In Anime, Hazbin Hotel/Helluva Boss, South Park, The Coffin Of Andy And Leyley}}$
+$\text{\color{#0047ab}{• Countryhumans, Five Nights In Anime, Hazbin Hotel/Helluva Boss,}}$
+$\text{\color{#0047ab}{South Park, The Coffin Of Andy And Leyley}}$
 </p>
 <p>
 $\text{\color{#0047ab}{• McPig (dev of Pizza Tower) supporters}}$
