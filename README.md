@@ -66,7 +66,7 @@ $\text{\color{#0047ab}{• Enemies to lovers trope (I don't like it most of the 
 $\text{\color{#0047ab}{• Politic topics (idm hearing abt it}}$
 </p>
 <p>
-$\text{\color{#0047ab}{but idrc}}$
+$\text{\color{#0047ab}{but idrc)}}$
 </p>
 <p>
 $\text{\color{#0047ab}{• The terms "femboy" and "goon"}}$
