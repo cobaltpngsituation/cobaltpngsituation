@@ -63,7 +63,8 @@ $\text{\color{#0047ab}{﹙ Thin Ice﹚}}$
 $\text{\color{#0047ab}{• Enemies to lovers trope (I don't like it most of the time)}}$
 </p>
 <p>
-$\text{\color{#0047ab}{• Politic topics (idm hearing abt it 
+$\text{\color{#0047ab}{• Politic topics (idm hearing abt it
+</p>
 <p>
 $\text{\color{#0047ab}{but idrc}}$
 </p>
