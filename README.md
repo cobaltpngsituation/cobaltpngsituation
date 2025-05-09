@@ -63,7 +63,10 @@ $\text{\color{#0047ab}{﹙ Thin Ice﹚}}$
 $\text{\color{#0047ab}{• Enemies to lovers trope (I don't like it most of the time)}}$
 </p>
 <p>
-$\text{\color{#0047ab}{• Politic topics (idm hearing abt it, but idrc}}$
+$\text{\color{#0047ab}{• Politic topics (idm hearing}}$
+</p>
+<p>
+$\text{\color{#0047ab}{abt it, but idrc)}}$
 </p>
 <p>
 $\text{\color{#0047ab}{• The terms "femboy" and "goon"}}$
