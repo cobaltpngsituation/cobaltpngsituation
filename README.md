@@ -78,5 +78,5 @@ $\text{\color{#0047ab}{• Politics (idm hearing it, but am not political}}$
 </p>
 
 <p>
-$\text{\color{#0047ab}{• the terms "goon" and "femboy" (they make me uncomfy}}$
+$\text{\color{#0047ab}{• the terms "goon" and "femboy" (they make me uncomfy)}}$
 </p>
