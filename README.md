@@ -33,7 +33,7 @@ she / her , 20 , 10.24.20 💙
 ﹙ BYI ﹚
 </p>
 <p>
-Booping repetitively can annoy me (I don't have a td/tt, but I'll move)
+• Booping repetitively can annoy me (I don't have a td/tt, but I'll move)
 </p>
 <p>
 • Color-dropping, copying, or taking insp. from my ponies is prohibited
