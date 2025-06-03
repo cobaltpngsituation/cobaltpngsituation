@@ -56,6 +56,7 @@ she / her , 20 , 10.24.20 💙
 ﹙ DNI ﹚
 </p>
 <p>
+	
 [• Basic criteria](https://basic-dni.crd.co/)
 </p>
 </p>
