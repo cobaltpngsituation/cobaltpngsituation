@@ -53,10 +53,13 @@ she / her , 20 , 10.24.20 💙
 • I block/hide freely depending on if you've harassed my friends or meet my dni criteria
 </p>
 <p>
-• I'm usually zoomed in x4 or x6
+• If you have an issue w/me, reach out. I'd rather know and sort things civily
 </p>
 <p>
 • I'm pretty shy and tend not to int first
+</p>
+<p>
+• I'm usually zoomed in x4 or x6
 </p>
 <p>
 ﹙ DNI ﹚
