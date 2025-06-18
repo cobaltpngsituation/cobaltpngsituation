@@ -42,6 +42,9 @@ she / her , 20 , 10.24.20 💙
 • Don't associate my friends w/me. I'm myself and don't agree w/everything they do/say
 </p>
 <p>
+• Idm if you cuddle or hide behind me
+</p>
+<p>
 • I'm bad at explaining things + need refreshers sometimes
 </p>
 • I believe my ocs are alive, feel their own things, have their own interests, etc.
