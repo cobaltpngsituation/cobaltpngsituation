@@ -42,15 +42,18 @@ she / her , 20 , 10.24.20 💙
 • Don't associate my friends w/me. I'm myself and don't agree w/everything they do/say
 </p>
 <p>
-• I believe my ocs are alive, feel their own things, have their own interests, etc.
-</p>
 • I'm bad at explaining things + need refreshers sometimes
+</p>
+• I believe my ocs are alive, feel their own things, have their own interests, etc.
 </p>
 <p>
 • I block/hide freely depending on if you've harassed my friends or meet my dni criteria
 </p>
 <p>
 • I'm usually zoomed in x4 or x6
+</p>
+<p>
+• I'm pretty shy and tend not to int first
 </p>
 <p>
 ﹙ DNI ﹚
