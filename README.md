@@ -100,3 +100,6 @@ Click › [here](https://github.com/cobaltpng/thefootsoldier) ‹ for my interes
 <p>
 • The term "goon"
 </p>
+<p>
+ ˗ˏˋ　　ᴄʟᴏsɪɴɢ ᴘʀᴏғɪʟᴇ.ᴇxᴇ　　ˎˊ˗
+</p>
