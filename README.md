@@ -41,6 +41,8 @@ I'm usually zoomed in x4 or x6, so I might not see you unless you're close up
 
 ᴅɴɪ
 
+Basic dni criteria
+
 Countryhumans, Five Nights In Anime, Hazbin Hotel/Helluva Boss, South Park, The Coffin Of Andy And Leyley
 
 Jonochrome (One Night At Flumpty's dev) supporters
@@ -54,5 +56,7 @@ Poppy Playtime dev supporters
 Enemies to lovers ships (I don't like this trope most of the time)
 
 Politics (idc hearing abt it, but am not political)
+
+Poop jokes (keep it to a minimum, pls)
 
 The term 'femboy' and 'goon' (they make me uncomfy)
