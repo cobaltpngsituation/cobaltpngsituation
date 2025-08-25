@@ -6,6 +6,8 @@ LOADING FILE. . .
 
 ![](https://i.imgur.com/nuJZj8v.png)
 
+All my interests are -> [here](https://github.com/cobaltpngsituation/thefootsoldier) <-
+
 Cobalt/Emma/my ponies name ᯓ new nicknames 🚫 (if idk you)
 
 Booping constantly/covering intentionally bothers me
