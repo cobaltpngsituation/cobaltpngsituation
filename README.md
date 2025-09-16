@@ -2,8 +2,6 @@
 
 🛈 better to view on desktop
 
-LOADING FILE. . .
-
 ![](https://i.imgur.com/nuJZj8v.png)
 
 All my interests are -> [here](https://github.com/cobaltpngsituation/thefootsoldier) <-
@@ -45,5 +43,3 @@ Politics (Idc hearing abt it, but am not political)
 Poop jokes (keep it to a minimum, pls)
 
 The term 'femboy' and 'goon' (they make me uncomfy)
-
-EXITING FILE. . .
