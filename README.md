@@ -1,45 +1,45 @@
 <div align="center">
 
-🛈 better to view on desktop
-
 ![](https://i.imgur.com/nuJZj8v.png)
 
-All my interests are -> [here](https://github.com/cobaltpngsituation/thefootsoldier) <-
+All my interests -> [☻](https://github.com/cobaltpngsituation/thefootsoldier) <-
 
-Cobalt/Emma/my ponies name ᯓ new nicknames 🚫 (if idk you)
+<ins>BYI</ins>
 
-Booping constantly/covering intentionally bothers me
+Call me Cobalt, or my pony's name. New nicknames are prohibited.
 
-Color-dropping/copying/taking insp. 🚫
+Booping constantly/covering me bothers me
 
-Don't associate my friends w/me. I don't agree w/everything they do/say
+Color-dropping, copying, and taking insp. is prohibited.
 
-I'm bad at explaining + have a bad memory so I need refreshers sometimes
+Don't associate me with my friends. I'm myself, not them.
 
-I believe my ocs are alive, feel their own things, have their own interests, etc
+I believe my OCs are alive, feel their own things, have their own interests, etc
 
-I block/hide freely if you meet my dni/harass me
+I block/hide freely if you have harassed me or meet my dni criteria
 
-If you have an issue w/me, reach out. I'd rather sort things civilly
+If you have an issue with me, please reach out. I'd rather civilly sort things
 
-I'm playful w/friends, but shy by myself and don't int first unless giving a crown
+I'm bad at explaining things + need refreshers sometimes
 
-I'm usually zoomed in x4 or x6 so there's a chance I don't see you
+If I know you, I'm playful, but shy by myself and don't interact first.
+
+I'm usually zoomed in x4, 6, or 8, so at first, I might not see you
 
 ![](https://i.imgur.com/Q93gACM.png)
 
+<ins>DNI</ins>
+
 Basic dni criteria
 
-CH, FNIA, HB/HH, SP, TCOAALL
+Countryballs/humans, Five Nights In Anime, Hazbin Hotel/Helluva Boss, South Park, The Coffin Of Andy and Leyley
 
-Jonochrome (ONAF dev), McPig (PT dev), and Poppy Playtime dev supporters
+Jonochrome (One Night At Flumpty's dev), McPig (Pizza Tower's dev), and Poppy Playtime dev supporters
 
 <ins>Thin Ice</ins>
 
-Enemies to lovers ships (I dislike this trope most of the time)
+Enemies-to-lovers ships (I dislike this trope most of the time)
 
-Politics (Idc hearing abt it, but am not political)
-
-Poop jokes (keep it to a minimum, pls)
+Politics (idc hearing abt it, but am not political)
 
 The term 'femboy' and 'goon' (they make me uncomfy)
