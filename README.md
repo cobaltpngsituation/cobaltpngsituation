@@ -18,6 +18,8 @@ I believe my OCs are alive, feel their own things, have their own interests, etc
 
 I block/hide freely if you have harassed me or meet my dni criteria
 
+I can be blunt/brutally honest if smth is bothering me
+
 If you have an issue with me, please reach out. I'd rather civilly sort things
 
 I'm bad at explaining things + need refreshers sometimes
