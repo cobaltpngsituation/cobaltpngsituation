@@ -5,7 +5,7 @@
 ### 🪖
 
 Cobalt • she / her • 20
-happily taken • 10.24.20 💙
+happily taken by my boyfriend • 10.24.20 💙
 
 [Atabook](https://cobaltpng.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpngsituation) • [StrawPage](https://cobaltpng.straw.page/)
 
