@@ -2,48 +2,44 @@
 
 ![](https://i.imgur.com/udDKdNB.gif)
 
-≈🪖≈ Cobalt ≈ she ≈ 20
+### 🪖
 
-[Atabook](https://cobaltpng.atabook.org/) ≈ [interests](https://github.com/cobaltpngsituation/thefootsoldier) ≈ [pronouns](https://pronouns.cc/@cobaltpngsituation) ≈ [StrawPage](https://cobaltpng.straw.page/)
+Cobalt • she / her • 20
 
-<ins>BYI</ins>
+[Atabook](https://cobaltpng.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpngsituation) • [StrawPage](https://cobaltpng.straw.page/)
 
-Call me Cobalt, or my pony's name. New nicknames are prohibited.
+hey, i'm cobalt. i don't talk much, but i'm easy-going, and friendly.
 
-Booping constantly/covering me bothers me
+don't associate me w/my friends. i don't agree w/everything they do or say
 
-Color-dropping, copying, and taking insp. is prohibited.
+don't color-drop, copy, or take insp from my ponies
 
-Don't associate me with my friends. I'm myself, not them.
+i can be blunt/honest if something's bugging me
 
-I believe my OCs are alive, feel their own things, have their own interests, etc
+i'm bad at explaining and have a bad memory, so i might need refreshers sometimes
 
-I block/hide freely if you have harassed me or meet my dni criteria
+i believe my ocs are alive, feel their own things, have their own interests, etc
 
-I can be blunt/brutally honest if smth is bothering me
+i'm easier to speak to in whispers
 
-If you have an issue with me, please reach out. I'd rather civilly sort things
+### <ins>DNI</ins>
 
-I'm bad at explaining things + need refreshers sometimes
+basic dni criteria
 
-If I know you, I'm playful, but shy by myself and don't interact first.
+ableist (e.g. r slur usage)
 
-I'm usually zoomed in x4, 6, or 8, so at first, I might not see you
+antisemitic, zionist, etc.
 
-![](https://i.imgur.com/Q93gACM.png)
+com/dark/proshipper
 
-<ins>DNI</ins>
+countryhumans, five nights in anime, hazbin hotel/helluva boss, south park, the coffin of andy and leyley
 
-Basic dni criteria
+jonochrome, mcpig, poppy playtime devs supporters
 
-Countryballs/humans, Five Nights In Anime, Hazbin Hotel/Helluva Boss, South Park, The Coffin Of Andy and Leyley
+### <ins>Thin Ice</ins>
 
-Jonochrome (One Night At Flumpty's dev), McPig (Pizza Tower's dev), and Poppy Playtime dev supporters
+enemies-to-lovers ships. i dislike the trope most of the time
 
-<ins>Thin Ice</ins>
+politics talk (idc hearing abt it, but am not political)
 
-Enemies-to-lovers ships (I dislike this trope most of the time)
-
-Politics (idc hearing abt it, but am not political)
-
-The term 'femboy' and 'goon' (they make me uncomfy)
+'femboy' and 'goon' term usage
