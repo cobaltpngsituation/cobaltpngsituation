@@ -1,8 +1,10 @@
 <div align="center">
 
-![](https://i.imgur.com/nuJZj8v.png)
+![](https://i.imgur.com/udDKdNB.gif)
 
-All my interests -> [☻](https://github.com/cobaltpngsituation/thefootsoldier) <-
+≈🪖≈ Cobalt ≈ she ≈ 20
+
+[Atabook](https://cobaltpng.atabook.org/) ≈ [interests](https://github.com/cobaltpngsituation/thefootsoldier) ≈ [pronouns](https://pronouns.cc/@cobaltpngsituation) ≈ [StrawPage](https://cobaltpng.straw.page/)
 
 <ins>BYI</ins>
 
