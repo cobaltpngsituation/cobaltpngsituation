@@ -34,7 +34,7 @@ antisemitic, zionist, etc.
 
 com/dark/proshipper
 
-countryhumans, five nights in anime, hazbin hotel/helluva boss, south park, the coffin of andy and leyley
+countryhumans, d/qsmp five nights in anime, hazbin hotel/helluva boss, south park, the coffin of andy and leyley
 
 jonochrome, mcpig, poppy playtime devs supporters
 
