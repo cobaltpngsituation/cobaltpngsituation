@@ -6,7 +6,8 @@
 
 ⟢　　cobalt⠀⠀𓈒⠀⠀she / her⠀⠀⠀⠀⟡
  
-happily taken by my boyfriend <⠀10.24.20⠀3⠀⠀⠀◡◡⠀⠀⠀⠀⠀EST⠀⏾
+happily taken by my boyfriend
+<⠀10.24.20⠀3⠀⠀⠀◡◡⠀⠀⠀⠀⠀EST⠀⏾
 
 [Atabook](https://cobaltpng.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpngsituation) • [StrawPage](https://cobaltpng.straw.page/)
 
