@@ -44,4 +44,4 @@ enemies-to-lovers ships. i dislike the trope most of the time
 
 politics talk (idc hearing abt it, but am not political)
 
-'femboy' and 'goon' term usage
+'femboy' term usage
