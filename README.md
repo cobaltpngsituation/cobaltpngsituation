@@ -8,7 +8,7 @@
 
 <⠀10.24.20⠀3⠀⠀⠀◡◡⠀⠀⠀⠀⠀EST⠀⏾
 
-[Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpngsituation) • [StrawPage](https://cobaltpng.straw.page/)
+[Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
 
 hey, i'm cobalt. although i don't speak much, i'm generally easy-going and friendly.
 
