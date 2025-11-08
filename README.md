@@ -10,7 +10,7 @@
 
 [Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpngsituation) • [StrawPage](https://cobaltpng.straw.page/)
 
-hey, i'm cobalt. i don't talk much, but i'm easy-going, and friendly.
+hey, i'm cobalt. although i don't speak much, i'm generally easy-going and friendly.
 
 don't associate me w/my friends. i don't agree w/everything they do or say
 
