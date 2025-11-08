@@ -12,25 +12,21 @@
 
 hey, i'm cobalt. although i don't speak much, i'm generally easy-going and friendly.
 
-don't associate me w/my friends. i don't agree w/everything they do or say
+don't associate me with my friends. i don't agree with everything they do/say.
 
-don't color-drop, copy, or take insp from my ponies
+don't color-drop, copy, or get inspiration from my ponies.
 
-i can be blunt/honest if something's bugging me
+i can be blunt if something's bothering me
 
-i'm bad at explaining and have a bad memory, so i might need refreshers sometimes
+i'm bad at explaining and have a bad memory, so i might need refreshers if requested
 
 i believe my ocs are alive, feel their own things, have their own interests, etc
 
-i'm easier to speak to in whispers
+i'm easier to speak to through whispers as i'm frequently off-tab
 
 ### <ins>DNI</ins>
 
-basic dni criteria
-
-ableist (e.g. r slur usage)
-
-antisemitic, zionist, etc.
+basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, zoophile)
 
 com/dark/proshipper
 
