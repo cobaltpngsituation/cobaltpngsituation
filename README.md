@@ -28,8 +28,6 @@ i'm easier to speak to through whispers as i'm frequently off-tab
 
 basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, zoophile)
 
-com/dark/proshipper
-
 countryhumans, d/qsmp five nights in anime, hazbin hotel/helluva boss, south park, the coffin of andy and leyley
 
 jonochrome, mcpig, poppy playtime devs supporters
