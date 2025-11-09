@@ -1,41 +1,31 @@
 <div align="center">
 
-![](https://i.imgur.com/udDKdNB.gif)
-
-### 🪖
-
-⟢　　cobalt⠀⠀𓈒⠀⠀she / her⠀⠀⠀⠀⟡
-
-<⠀10.24.20⠀3⠀⠀⠀◡◡⠀⠀⠀⠀⠀EST⠀⏾
+![](https://file.garden/aOcZfwH5a01gtonb/Emma%20and%20Mortis)
 
 [Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
 
-hey, i'm cobalt. although i don't speak much, i'm generally easy-going and friendly.
+hey & welcome. i'm an easy-going, friendly person.
 
-don't associate me with my friends. i don't agree with everything they do/say.
+don't associate me w/my friends pls. i don't agree w/everything they do/say.
 
-don't color-drop, copy, or get inspiration from my ponies.
+don't color-drop, copy, or take insp from my ponies.
 
-i can be blunt if something's bothering me
+i can be blunt if something's bothering me. i'm also bad at explaining & have a bad memory, i might need refreshers sometimes
 
-i'm bad at explaining and have a bad memory, so i might need refreshers if requested
+i believe my ocs are alive, feel their own things, have their own interests, etc.
 
-i believe my ocs are alive, feel their own things, have their own interests, etc
-
-i'm easier to speak to through whispers as i'm frequently off-tab
+i'm easier to speak to in whispers as i'm off-tab usually
 
 ### <ins>DNI</ins>
 
-basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, zoophile)
+basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, racist, zoophile)
 
-countryhumans, d/qsmp five nights in anime, hazbin hotel/helluva boss, south park, the coffin of andy and leyley
-
-jonochrome, mcpig, poppy playtime devs supporters
+any vivziepop media, blueycapsules, countryhumans, dream/quackitysmp, five nights in anime, jonochrome, rebornica, south park, the coffin of andy and leyley
 
 ### <ins>Thin Ice</ins>
 
-enemies-to-lovers ships. i dislike the trope most of the time
+enemies-to-lovers ships
 
-politics talk (idc hearing abt it, but am not political)
+politics
 
 'femboy' term usage
