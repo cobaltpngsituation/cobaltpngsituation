@@ -2,6 +2,8 @@
 
 ![](https://file.garden/aOcZfwH5a01gtonb/ponytownsuperflex.gif)
 
+[Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
+
 hey & welcome. i'm an easy-going, friendly person.
 
 don't associate me w/my friends pls. i don't agree w/everything they do/say.
@@ -27,5 +29,3 @@ enemies-to-lovers ships
 politics
 
 'femboy' term usage
-
-[Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
