@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://file.garden/aOcZfwH5a01gtonb/EmmaandMortis-ezgif.com-resize.png)
+![](https://file.garden/aOcZfwH5a01gtonb/superflex.gif)
 
 [Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
 
