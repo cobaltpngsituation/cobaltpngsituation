@@ -2,7 +2,11 @@
 
 ![](https://file.garden/aOcZfwH5a01gtonb/ponytownsuperflex.gif)
 
+·
+
 [Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
+
+·
 
 hey & welcome. i'm an easy-going, friendly person.
 
