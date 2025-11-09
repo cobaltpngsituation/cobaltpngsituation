@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://file.garden/aOcZfwH5a01gtonb/Emma%20and%20Mortis)
+![](https://file.garden/aOcZfwH5a01gtonb/EmmaandMortis-ezgif.com-resize.png)
 
 [Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
 
