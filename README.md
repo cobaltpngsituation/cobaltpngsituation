@@ -4,25 +4,32 @@
 
 [Atabook](https://cobaltpngsituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://cobaltpng.straw.page/)
 
-hey & welcome. i'm an easy-going, friendly person.
+<details>
+<summary>
+ abt me
+</summary>
 
-don't associate me w/my friends pls. i don't agree w/everything they do/say.
+hey, i'm cobalt. i'm not quite talkative, but i'm an easy-going, friendly person.
 
-i can be blunt if something's bothering me. i'm also bad at explaining & have a bad memory, so i might need refreshers sometimes
+20 yrs old ﹒ 12.07 ♐
+
+don't associate my friends w/me. i don't agree w/everything they do/say
+
+if i'm bothering you, pls tell me
 
 i believe my ocs are alive, feel their own things, have their own interests, etc.
 
-idm if you cuddle or hide behind me, but pls don't boop repetitively or cover me intentionally (i don't have a td/tt, however, it bothers me)
+i have a bad memory and might need refreshers sometimes
 
-i'm easier to speak to in whispers as i'm off-tab usually
+i'm easier to speak to in whispers as i'm mostly off-tab
 
-### <ins>DNI</ins>
+__DNI__
 
 basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, racist, zoophile)
 
 any vivziepop media, blueycapsules, countryhumans, dream/quackitysmp, five nights in anime, jonochrome, rebornica, south park, the coffin of andy and leyley
 
-### <ins>Thin Ice</ins>
+__Thin Ice__
 
 enemies-to-lovers ships
 
