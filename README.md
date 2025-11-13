@@ -26,6 +26,8 @@ any vivziepop media, blueycapsules, countryhumans, dream/quackitysmp, five night
 
 enemies-to-lovers ships
 
+Forsaken fans
+
 politics
 
 'femboy' term usage
