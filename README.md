@@ -8,7 +8,7 @@ hey & welcome. i'm an easy-going, friendly person.
 
 don't associate me w/my friends pls. i don't agree w/everything they do/say.
 
-i can be blunt if something's bothering me. i'm also bad at explaining & have a bad memory, i might need refreshers sometimes
+i can be blunt if something's bothering me. i'm also bad at explaining & have a bad memory, so i might need refreshers sometimes
 
 i believe my ocs are alive, feel their own things, have their own interests, etc.
 
