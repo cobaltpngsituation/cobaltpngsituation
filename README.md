@@ -30,6 +30,8 @@ don't associate me w/my friends. i don't agree w/everything they do/say.
 
 i believe my ocs are alive in my mind, i believe they feel their own things, have their own interests, etc. certain ocs don't like getting touched w/o permission.
 
+i block/hide freely
+
 i can be blunt if someone/something's bothering me, and am not afraid to say if i dislike something.
 
 if i'm bothering you, pls tell me. i'd rather know and attempt to sort things out.
