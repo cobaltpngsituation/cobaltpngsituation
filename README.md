@@ -70,7 +70,7 @@ politics
 'femboy' term usage
 </details>
 
-## Interests
+## <ins>Interests</ins>
 
 *Italic* = hyperfix.
 
