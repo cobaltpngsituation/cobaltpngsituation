@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://file.garden/aOcZfwH5a01gtonb/ponytownsuperflex.gif)
+![](https://file.garden/aOcZfwH5a01gtonb/pony-town-superflex-pvz_gw2zombiesona-sit-blinking-padded-toy139-4x-ezgif.com-resize.gif)
 
 [Atabook](https://cobaltpng.atabook.org/) ﹒ [Color My Tree](https://colormytree.me/2025/01JEV6YJ3MBKNZXY91P4MNYNMR) ﹒ [Guns.lol](https://guns.lol/cobaltpng) ﹒ [Pronouns.Page](https://en.pronouns.page/@CobaIt) ﹒ [StrawPage](https://cobaltpng.straw.page/)
 
