@@ -108,4 +108,4 @@ Canon x oc | casinocore | Chicken Smoothie | creepypastas | clowns | DC | *drago
 Pixar | SCP | underwater creatures | urbex | *zombies*
 </details>
 
-[![Hits](https://hits.sh/github.com/cobaltpng/hits.svg?label=visitors&color=0047ab&labelColor=0050c2)](https://hits.sh/github.com/cobaltpng/hits/)
+[![Hits](https://hits.sh/github.com/cobaltpng/hits.svg?label=visits&color=4D632F&labelColor=5d783a&logo=https%3A%2F%2Ffile.garden%2FZ0TC-0mCggxGeVLO%2FFS%2520icon.png)](https://hits.sh/github.com/cobaltpng/hits/)
