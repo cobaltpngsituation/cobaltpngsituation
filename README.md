@@ -49,7 +49,7 @@ i'm easier to speak to in whispers as i'm mostly off-tab
 
 basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolita, maps/pedos, racist, zoophile)
 
-any vivziepop media, blueycapsules, countryhumans, dream/quackitysmp, five nights in anime, jonochrome, rebornica, south park, the coffin of andy and leyley
+any vivziepop media, blueycapsules, countryhumans, dream/quackitysmp, fazclaire's/five nights in anime, jonochrome, rebornica, south park, the coffin of andy and leyley
 
 betilla x rayman shippers
 
