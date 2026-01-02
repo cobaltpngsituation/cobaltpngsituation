@@ -6,50 +6,45 @@
 
 <details>
 <summary>
-  abt me
+𓎟　˚　basic info
+
 </summary>
   
-cobalt ﹒⠀she / her⠀﹒⠀EST
+。꩜    ⠀⠀cobalt⠀⠀⠀ᵔ⠀⠀⠀she⠀／　her 　 
 
-21 yrs old ﹒ 12.07 ♐ ﹒ canadian 🍁 ﹒ ISFP-T ﹒ 9w1
+⎯⎯ 　　21　 　12.07 ♐︎ 　　canadian 　　ISFP-T + 9w1
 
-c+h √ ﹒ copying, color-dropping, taking insp. ✖
+‿ demiroace  ˙⠀⠀｡  happily taken 　　10.24.20 <3
 
-demiroace + heterosexual ﹒ happily taken ﹒ 10.24.20 <3
-
-i don't interact first (unless i'm crowning one's pony) as i'm quite shy, but i'm generally easy-going and friendly
-
+𓎟𓎟　c+h ✓　⌣ 　int　　𓈒  　　dnc
 </details>
 
 <details>
 <summary>
-  before you interact
+⁺　.　　before you int　"
 </summary>
 
-don't associate me w/my friends. i don't agree w/everything they do/say.
+don't associate me w/my friends. i'm myself, not them.
 
-i believe my ocs are alive in my mind, i believe they feel their own things, have their own interests, etc. certain ocs don't like getting touched w/o permission.
+i believe in my mind, my ocs are alive, feel their own things, have their own interests, etc. certain ocs don't like getting touched w/o permission.
 
-i block/hide freely
+i block freely
 
-i can be blunt if someone/something's bothering me, and am not afraid to say if i dislike something.
+i can be blunt and am not afraid to say if something's bothering me
 
-if i'm bothering you, pls tell me. i'd rather know and attempt to sort things out.
+if i'm bothering you, pls tell me
 
-i have a bad memory and might need refreshers sometimes
-
-i'm easier to speak to in whispers as i'm mostly off-tab
-
+i'm easier to speak to in whispers as i'm off-tab usually
 </details>
 
 <details>
 <summary>
-  do not interact + thin ice
+.　　don't interact　╱　iwc/iwec
 </summary>
 
-basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolita, maps/pedos, racist, zoophile)
+basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolitas, maps/pedos, racist, zionist, zoophile)
 
-blueycapsules, countryhumans, dream/quackitysmp, fazclaire's/five nights in anime, hh/hb/vivziepop apologists, jonochrome, rebornica, south park, the coffin of andy and leyley
+countryhumans, dream/quackitysmp, fazclaire's/five nights in anime, hh/hb/vivziepop apologists, jonochrome, south park, the coffin of andy and leyley
 
 betilla x rayman shippers
 
@@ -59,9 +54,9 @@ pedo/rape jokes
 
 spawnism
 
-<ins>Thin Ice</ins>
+<ins>iwc/iwec</ins>
 
-enemies-to-lovers ships
+enemies-to-lovers ships, i don't like it most of the time
 
 Forsaken fans
 
@@ -70,21 +65,21 @@ politics
 'femboy' term usage
 </details>
 
-## <ins>Interests</ins>
+## ⠀𓏼　Interests 
 
 *Italic* = hyperfix.
 
 <details>
 <summary>
-  games
+┊　games
 </summary>
 
-Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Deep Rock Galactic | Enter The Gungeon | Fallout 76 | Five Nights At Freddy's | Fortnite | Garry's Mod | Garten Of Banban | GTA V | Identity V | Left 4 Dead 2 | Mario | Mortal Kombat | One Night At Flumpty's | PalWorld | Payday 2 + 3 |  Pizza Tower | *Plants Vs. Zombies* | *Pokemon* | Poppy Playtime | Rain World | *Rayman* | Risk of Rain 2 | Roblox | Rocket League | *Sly* | Sonic | Spore | Stardew Valley | Terraria | The Sims 4 | Totally Accurate Battle Simulator | Webfishing | Zuma | more I can't remember
+Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Deep Rock Galactic | Enter The Gungeon | Fallout | Five Nights At Freddy's | Fortnite | Garry's Mod | Garten Of Banban | GTA V | Identity V | Left 4 Dead 2 | Mario | Mortal Kombat | One Night At Flumpty's | PalWorld | Payday 2 + 3 |  Pizza Tower | *Plants Vs. Zombies* | *Pokemon* | Poppy Playtime | Rain World | *Rayman* | Risk of Rain 2 | Roblox | Rocket League | *Sly* | Sonic | Spore | Stardew Valley | Terraria | The Sims 4 | Totally Accurate Battle Simulator | Webfishing | Zuma
 </details>
 
 <details>
 <summary>
-  hobbies
+—　hobbies
 </summary>
 
 Doing voice impressions | drawing | listening to music | playing video games
@@ -92,16 +87,16 @@ Doing voice impressions | drawing | listening to music | playing video games
 
 <details>
 <summary>
-media
+◟ media
 </summary>
 
-Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl. 2019) | Cold Ones, Cr1tiKaL | Fresh Cut Slim | Ghost Adventures | Indiana Jones | Markiplier | MrHalloweenJunkie | Poofesure | Pyrocynical | Rick and Morty | Shrek | Smiling Friends | SomeOrdinaryGamers | The Brave Little Toaster | The Librarian | The Wiggles (w/the og cast) | Toy Story | WickedWiz
+Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl. 2019) | Cold Ones | Cr1tiKaL | Fresh Cut Slim | Ghost Adventures | Indiana Jones | Markiplier | MrHalloweenJunkie | Poofesure | Pyrocynical | Rick and Morty | Shrek | Smiling Friends | SomeOrdinaryGamers | The Brave Little Toaster | The Librarian | The Wiggles (w/the og cast) | Toy Story | WickedWiz
 
 </details>
 
 <details>
 <summary>
-misc.
+.　︵︵ 　misc.
 </summary>
 
 Canon x oc | casinocore | Chicken Smoothie | creepypastas | clowns | DC | *dragons* | Disney | Homestuck | Marvel | oc x oc | pirates | 
