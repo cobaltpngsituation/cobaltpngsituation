@@ -14,7 +14,7 @@
 
 ⎯⎯ 　　21　 　12.07 ♐︎ 　　canadian 　　ISFP-T + 9w1
 
-‿ demiroace  ˙⠀⠀｡  happily taken 　　10.24.20 <3 　　all interactions are platonic
+‿ ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Straight%20ally.png) ˙⠀⠀｡  happily taken 　　10.24.20 <3 　　all interactions are platonic
 
 </details>
 
