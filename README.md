@@ -31,6 +31,8 @@ i block freely
 
 i can be blunt and am not afraid to say if something's bothering me
 
+i can't read tone well and would appreciate tone tags being used. i also use tone tags when i feel they're necessary
+
 if i'm bothering you, pls tell me
 
 i'm easier to speak to in whispers as i'm off-tab usually
