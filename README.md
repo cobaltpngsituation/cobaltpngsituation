@@ -14,7 +14,7 @@
 
 ⎯⎯ 　　21　 　12.07 ♐︎ 　　canadian 　　ISFP-T + 9w1
 
-‿ demiroace  ˙⠀⠀｡  happily taken 　　10.24.20 <3
+‿ demiroace  ˙⠀⠀｡  happily taken 　　10.24.20 <3 　　all interactions are platonic
 
 </details>
 
