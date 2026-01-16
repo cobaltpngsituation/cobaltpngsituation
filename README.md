@@ -10,7 +10,7 @@
 
 </summary>
   
-。꩜    ⠀⠀cobalt⠀⠀⠀ᵔ⠀⠀⠀she⠀／　her 　 
+Hey, and welcome, feel free to look around. I don't speak much, but I'm easy-going and friendly.
 
 ⎯⎯ 　　21　 　12.07 ♐︎ 　　canadian 　　ISFP-T + 9w1
 
@@ -23,19 +23,20 @@
 ⁺　.　　before you int　"
 </summary>
 
-don't associate me w/my friends. i'm myself, not them.
+Don't associate me with my friends, pls. I don't agree with/know everything they do or say
 
-i believe in my mind, my ocs are alive, feel their own things, have their own interests, etc. certain ocs don't like getting touched w/o permission.
+I believe in my mind, my ocs are alive, feel their own things, have their own interests, etc. Certain ocs don't like getting touched without permission
 
-i block freely
+I block/hide freely depending on if you've harassed me or my friend(s), or if you've met my dni criteria
 
-i can be blunt and am not afraid to say if something's bothering me
+I can be blunt and am not afraid to express if someone/something's bothering me
 
-i can't read tone well and would appreciate tone tags being used. i also use tone tags when i feel they're necessary
+I can't read tone too well and would appreciate tone tags. I also use them when I feel they're necessary
 
-if i'm bothering you, pls tell me
+If I'm bothering you, pls tell me so that we can sort things civilly
 
-i'm easier to speak to in whispers as i'm off-tab usually
+I'm easier to speak to in whispers as I'm mostly off-tab doing something else
+
 </details>
 
 <details>
@@ -43,27 +44,28 @@ i'm easier to speak to in whispers as i'm off-tab usually
 .　　don't interact　╱　iwc/iwec
 </summary>
 
-basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolitas, maps/pedos, racist, zionist, zoophile)
+Basic criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolitas, maps/pedos, racist, zionist, zoophile)
 
-countryhumans, d/qsmp, fazclaire's/fnia, hh/hb/vivziepop apologists, jonochrome, south park, tcoaall
+Countryhumans, D/QSMP, Fazclaire's/FNIA, HB/HH/Vivziepop apologists, Jonochrome, South Park, TCOAALL
 
-betilla x rayman shippers
+Betilla x Rayman shippers. That's his mum
 
-crazy dave x dr. zomboss shippers
+Crazy Dave x Zomboss shippers. It makes me uncomfortable
 
-pedo/rape jokes
+Pedo/rape jokes
 
-spawnism
+Spawnism
 
 <ins>iwc/iwec</ins>
 
-enemies-to-lovers ships, i don't like it most of the time
+Enemies-to-lovers ships. I don't like them most of the time
 
-forsaken fans
+Forsaken fans
 
-politics
+Politics. Idm speaking abt it, but not for long.
 
-'femboy' term usage
+'Femboy' and 'Twink' term usage
+
 </details>
 
 ## ⠀𓏼　Interests 
