@@ -2,7 +2,7 @@
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Pony%20Town%20stuff/Emma%20Pony%20Town.gif)
 
-[Atabook](https://cobaltpng.atabook.org/) ﹒ [Guns.lol](https://guns.lol/cobaltpng) ﹒ [Pronouns.Page](https://en.pronouns.page/@CobaIt) ﹒ [Spacehey](https://spacehey.com/cobaltpng)  ﹒ [StrawPage](https://cobaltpng.straw.page/)
+[Atabook](https://cobaltpng.atabook.org/) ﹒ [Guns.lol](https://guns.lol/cobaltpng) ﹒ [Pronouns.Page](https://en.pronouns.page/@CobaIt) ﹒ [Spacehey](https://spacehey.com/cobaltpng)  ﹒ [StrawPage](https://cobaltsitutationiscrazy.straw.page/)
 
 <details>
 <summary>
