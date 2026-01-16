@@ -6,7 +6,7 @@
 
 <details>
 <summary>
-𓎟　˚　basic info
+𓎟　˚　Basic Info
 
 </summary>
   
@@ -20,7 +20,7 @@ Hey, and welcome, feel free to look around. I don't speak much, but I'm easy-goi
 
 <details>
 <summary>
-⁺　.　　before you int　"
+⁺　.　　Before You Int　"
 </summary>
 
 Don't associate me with my friends, pls. I don't agree with/know everything they do or say
@@ -41,7 +41,7 @@ I'm easier to speak to in whispers as I'm mostly off-tab doing something else
 
 <details>
 <summary>
-.　　don't interact　╱　iwc/iwec
+.　　Don't Interact　╱　IWC/IWEC
 </summary>
 
 Basic criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolitas, maps/pedos, racist, zionist, zoophile)
