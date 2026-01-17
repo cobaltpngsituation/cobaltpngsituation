@@ -77,7 +77,7 @@ Politics. Idm speaking abt it, but not for long.
 ┊　games
 </summary>
 
-Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Deep Rock Galactic | Enter The Gungeon | Fallout | Five Nights At Freddy's | Fortnite | Garry's Mod | Garten Of Banban | GTA V | Identity V | Left 4 Dead 2 | Mario | Mortal Kombat | One Night At Flumpty's | PalWorld | Payday 2 + 3 |  Pizza Tower | *Plants Vs. Zombies* | *Pokemon* | Poppy Playtime | Rain World | *Rayman* | Risk of Rain 2 | Roblox | Rocket League | *Sly* | Sonic | Spore | Stardew Valley | Terraria | The Sims 4 | Totally Accurate Battle Simulator | Webfishing | Zuma
+Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Deep Rock Galactic | Enter The Gungeon | Fallout | Five Nights At Freddy's | Fortnite | Garry's Mod | Garten Of Banban | GTA V | Identity V | Left 4 Dead 2 | Mario | Mortal Kombat | One Night At Flumpty's | PalWorld | Payday 2 + 3 |  Pizza Tower | *Plants Vs. Zombies* | *Pokemon* | Poppy Playtime | Rain World | *Rayman* | Risk of Rain 2 | Roblox | Rocket League | *Sly* | Sonic | Spore | Stardew Valley | Team Fortress 2 | Terraria | The Sims 4 | Totally Accurate Battle Simulator | Webfishing | Zuma
 </details>
 
 <details>
