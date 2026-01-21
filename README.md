@@ -82,7 +82,7 @@ all interactions are platonic as i'm taken (10.24.20 ❤︎)
 
 ▸ politics talk (idc talking abt it, but not for long)
 
-▸ religion talk (i've had it tried to be shoved down my throat before)
+▸ religion talk (i've had others' religions tried to be forced on me before)
 
 ▸ 'femboy' and 'twink' term usage
 
