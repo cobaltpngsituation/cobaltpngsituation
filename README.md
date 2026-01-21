@@ -6,7 +6,9 @@
 </summary>
   
 ###
-  
+
+Hey and welcome. Feel free to look around. I don't speak much and am quite shy, but am easy-going and friendly.
+
 。🪖    ⠀⠀cobalt⠀⠀⠀ᵔ⠀⠀⠀she⠀／　her
 
 ◜ above Canada's drinking age 。 ♐︎
