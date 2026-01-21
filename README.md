@@ -31,6 +31,8 @@ all interactions are platonic as i'm taken (10.24.20 ❤︎)
 
 ▸ don't associate my friends w/me. i don't agree/know everything they do/say.
 
+▸ i believe in my mind my ocs are alive, feel their own things, have their own interests, etc. certain ocs don't like getting touched w/o permission, so pls respect their boundaries.
+
 ▸ i block/hide freely depending on if you fit my dni or not, or have harassed me/my friend(s).
 
 ▸ i can be blunt if someone/something's bothering me
