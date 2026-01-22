@@ -160,7 +160,7 @@ Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC �
 
 *italic* = heavy comfort character
 
-Allan (Smiling Friends) 。*Bentley (Sly series)* 。*Cpt. Feathersword (The Wiggles)* 。*Dimitri Lousteau (Sly series)* 。*DJ Spit (Smiling Friends)* 。*Dr. Zomboss (PVZ series)* 。*Foxy (FNAF series)* 。*Globox (Rayman series)* 。Junkrat (Overwatch) 。*Kamek (Mario)* 。Lemongrab (Adventure Time) 。*Murray (Sly series)* 。*Papyrus (UnderTale)* 。*Party Brainz (PVZ:GW2)* 。Pinocchio (Shrek) 。*Rayman (Rayman series)* 。Randall Boggs (Monsters Inc.) 。*Sly Cooper (Sly)* 。Snow Miser (The Year Without a Santa Claus) 。Sun (FNAF: SB) 。*Super Brainz (PVZ:GW2)* 。The Joker (DC)
+Allan (Smiling Friends) 。*Bentley (Sly series)* 。*Cpt. Feathersword (The Wiggles)* 。*Dimitri Lousteau (Sly series)* 。*DJ Spit (Smiling Friends)* 。*Dr. Zomboss (PVZ series)* 。*Foxy (FNAF series)* 。*Globox (Rayman series)* 。Junkrat (Overwatch) 。*Kamek (Mario)* 。Lemongrab (Adventure Time) 。*Murray (Sly series)* 。*Papyrus (UnderTale)* 。*Party Brainz (PVZ:GW2)* 。Pinocchio (Shrek) 。*Rayman (Rayman series)* 。Randall Boggs (Monsters Inc.) 。*Sly Cooper (Sly)* 。Snow Miser (The Year Without a Santa Claus) 。Sun (FNAF: SB) 。*Super Brainz (PVZ:GW2)* 。The Joker (DC) 。Toy Freddy (FNAF)
 
 <hr> <p></p>
 
