@@ -178,7 +178,7 @@ Allan (Smiling Friends) 。*Bentley (Sly series)* 。*Cpt. Feathersword (The Wig
 Foot Soldier (PVZ) 。Zoey (L4D/L4D2)
 
 <hr> <p></p>
-</details>
+</details></details>
 
 [Atabook](https://cobaltsituationiscrazy.atabook.org/) 。[Guns.lol](https://guns.lol/cobaltpng) 。[Pronouns.Page](https://en.pronouns.page/@CobaIt) 。[Spacehey](https://spacehey.com/cobaltpng) 。[StrawPage](https://cobaltsitutationiscrazy.straw.page/)
 
