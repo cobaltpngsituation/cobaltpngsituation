@@ -143,14 +143,43 @@ Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC �
 <summary>
 ◜ collection of stamps 。
 </summary>
-  
+
 ###
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Banette.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/BLU%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Chucky%20and%20Tiffany%20stamp.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Cofagrigus.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Demoman.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/DRG.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Espeon.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Gmod.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Greninja.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Bentley.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Dr%20Zomboss.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Murray.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Rayman.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Sly.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20zombies.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Indie.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/L4D.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Lopunny.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Markiplier.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Maxmoefoe.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Meowstic.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Mismagius.png) ![]((https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Greninja.jpg)) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Kamek%20stamp.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Mr.%20Mime%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Papyrus%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Pokemon%20Y.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Pyro.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Rayman%20target.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Rick%20and%20Morty.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Roblox.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sableye.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/SCP.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Scrafty.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Seismitoad.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sf.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sly%20Cooper%20fan.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Soldier%20main.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/TBLT.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Terraria.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Undead%20PVZ%20fan.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Vanilluxe%20stamp.png)
 </details>
 
-[Atabook](https://cobaltsituationiscrazy.atabook.org/) 。[Guns.lol](https://guns.lol/cobaltpng) 。[Pronouns.Page](https://en.pronouns.page/@CobaIt) 。[Spacehey](https://spacehey.com/cobaltpng) 。[StrawPage](https://cobaltsitutationiscrazy.straw.page/)
+<details>
+<summary>
+◜ comfort characters + kins 。
+</summary>
 
 ###
+
+<ins>Comfort Characters</ins>
+
+*italic* = heavy comfort character
+
+Allan (Smiling Friends) 。*Bentley (Sly series)* 。*Cpt. Feathersword (The Wiggles)* 。*Dimitri Lousteau (Sly series)* 。*DJ Spit (Smiling Friends)* 。*Dr. Zomboss (PVZ series)* 。*Foxy (FNAF series)* 。*Globox (Rayman series)* 。Junkrat (Overwatch) 。*Kamek (Mario)* 。Lemongrab (Adventure Time) 。*Murray (Sly series)* 。*Papyrus (UnderTale)* 。*Party Brainz (PVZ:GW2)* 。Pinocchio (Shrek) 。*Rayman (Rayman series)* 。Randall Boggs (Monsters Inc.) 。*Sly Cooper (Sly)* 。Snow Miser (The Year Without a Santa Claus) 。Sun (FNAF: SB) 。*Super Brainz (PVZ:GW2)* 。The Joker (DC)
+
+<hr> <p></p>
+
+<details>
+<summary>
+◜ kins 。
+</summary>
+
+###
+
+<ins>Kins</ins>
+
+###
+
+Foot Soldier (PVZ) 。Zoey (L4D/L4D2)
+
+<hr> <p></p>
+</details>
+
+[Atabook](https://cobaltsituationiscrazy.atabook.org/) 。[Guns.lol](https://guns.lol/cobaltpng) 。[Pronouns.Page](https://en.pronouns.page/@CobaIt) 。[Spacehey](https://spacehey.com/cobaltpng) 。[StrawPage](https://cobaltsitutationiscrazy.straw.page/)
 
 [![Hits](https://hits.sh/github.com/cobaltpng/hits.svg?style=plastic&label=fellow%20zombies&color=556e35&labelColor=5d783a)](https://hits.sh/github.com/cobaltpng/hits/)
