@@ -65,6 +65,8 @@ all interactions are platonic as i'm taken (10.24.20 ❤︎)
 
 ▸ Harley Quinn x Poison Ivy (had it tried to be shoved down my throat too many times)
 
+▸ Nina The Killer (I can't stand her)
+
 ▸ pedo/r*pe jokes
 
 ▸ Spawnism
