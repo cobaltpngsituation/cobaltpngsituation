@@ -13,6 +13,8 @@ Hey and welcome. Feel free to look around. I don't speak much and am quite shy, 
 
 ◜ above Canada's drinking age 。 ♐︎
 
+◜ c+h is always allowed unless stated otherwise 。 int
+
 ISFP-T 。9w1
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Straight%20ally.png)
