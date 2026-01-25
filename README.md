@@ -126,8 +126,19 @@ I adore interacting w/fellow fans and speaking abt my hyperfixations; however, I
 ###
 
 Amnesia series 。Animal Crossing: New Horizons 。Bugsnax 。Club Penguin 。Deep Rock Galactic 。Enter The Gungeon 。Fallout series 。FNAF series 。Fortnite 。Garry's Mod 。Garten of BanBan series 。GTA V 。Identity V 。Left 4 Dead & Left 4 Dead 2 。Mario in general 。One Night At Flumpty's series 。Palworld 。Payday 2 & Payday 3 。Pizza Tower 。*Plants Vs. Zombies series* 。*Pokemon in general* 。Poppy Playtime series 。*Rayman series* 。Roblox 。*Sly series* 。Team Fortress 2 。Terraria 。The Sims 4 。Totally Accurate Battle Simulator 。Webfishing 。Zuma series
-</details>
 
+<hr> <p></p>
+
+<details>
+<summary>
+◜ roblox specific 。
+</summary>
+  
+###
+
+Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fisch 。Nico's Nextbots 。showcase games
+</details>
+</details>
 <hr> <p></p>
 <details>
 <summary>
@@ -136,10 +147,23 @@ Amnesia series 。Animal Crossing: New Horizons 。Bugsnax 。Club Penguin 。De
   
 ###
 
-Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the 2019 movie) 。Cold Ones (YT channel) 。Cr1tikaL (YouTuber) 。*Fresh Cut Slim* (YouTuber) 。Ghost Adventures 。Indiana Jones series 。Markiplier (YouTuber) 。MrHalloweenJunkie (TikToker/YouTuber) 。Poofesure (YouTuber) 。Pyrocynical (streamer/YouTuber) 。Rick and Morty 。Shrek series 。Smiling Friends 。SomeOrdinaryGamers (YouTuber) 。The Brave Little Toaster 。The Librarian (YouTuber) 。The Wiggles (w/the original cast) 。Toy Story series 。WickedWiz (YouTuber)
+Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the 2019 movie) 。Ghost Adventures 。Indiana Jones series 。Rick and Morty 。Shrek series 。Smiling Friends 。The Brave Little Toaster 。The Wiggles (w/the original cast) 。Toy Story series
 </details>
 
 <hr> <p></p>
+
+<details>
+<summary>
+◜ youtubers 。
+</summary>
+  
+###
+
+Cold Ones 。Cr1tiKaL 。*Fresh Cut Slim* 。Markiplier 。MrHalloweenJunkie 。Poofesure 。Pyrocynical 。SomeOrdinaryGamers 。The Librarian 。WickedWiz
+</details>
+
+<hr> <p></p>
+
 <details>
 <summary>
 ◜ misc. 。
