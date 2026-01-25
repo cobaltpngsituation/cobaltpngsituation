@@ -117,7 +117,6 @@ all interactions are platonic as i'm taken (10.24.20 ❤︎)
 
 I adore interacting w/fellow fans and speaking abt my hyperfixations; however, I am not in any of the listed fandoms.
 
-<hr> <p></p>
 <details>
 <summary>
 ◜ games 。
@@ -137,9 +136,12 @@ Amnesia series 。Animal Crossing: New Horizons 。Bugsnax 。Club Penguin 。De
 ###
 
 Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fisch 。Nico's Nextbots 。showcase games
-</details>
-</details>
+
 <hr> <p></p>
+</details>
+
+</details>
+
 <details>
 <summary>
 ◜ media 。
@@ -148,9 +150,9 @@ Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fisch 。Nico's Ne
 ###
 
 Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the 2019 movie) 。Ghost Adventures 。Indiana Jones series 。Rick and Morty 。Shrek series 。Smiling Friends 。The Brave Little Toaster 。The Wiggles (w/the original cast) 。Toy Story series
-</details>
 
 <hr> <p></p>
+</details>
 
 <details>
 <summary>
@@ -160,9 +162,9 @@ Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the
 ###
 
 Cold Ones 。Cr1tiKaL 。*Fresh Cut Slim* 。Markiplier 。MrHalloweenJunkie 。Poofesure 。Pyrocynical 。SomeOrdinaryGamers 。The Librarian 。WickedWiz
-</details>
 
 <hr> <p></p>
+</details>
 
 <details>
 <summary>
@@ -199,8 +201,6 @@ Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC �
 *italic* = heavy comfort character
 
 Allan (Smiling Friends) 。*Bentley (Sly series)* 。*Cpt. Feathersword (The Wiggles)* 。*Dimitri Lousteau (Sly series)* 。*DJ Spit (Smiling Friends)* 。*Dr. Zomboss (PVZ series)* 。*Foxy (FNAF series)* 。*Globox (Rayman series)* 。Junkrat (Overwatch) 。*Kamek (Mario)* 。Lemongrab (Adventure Time) 。*Murray (Sly series)* 。*Papyrus (UnderTale)* 。*Party Brainz (PVZ:GW2)* 。Pinocchio (Shrek) 。*Rayman (Rayman series)* 。Randall Boggs (Monsters Inc.) 。*Sly Cooper (Sly)* 。Snow Miser (The Year Without a Santa Claus) 。Sun (FNAF: SB) 。*Super Brainz (PVZ:GW2)* 。The Joker (DC) 。Toy Freddy (FNAF)
-
-<hr> <p></p>
 
 <details>
 <summary>
