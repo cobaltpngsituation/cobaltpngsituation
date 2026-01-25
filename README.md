@@ -17,9 +17,19 @@ Hey and welcome. Feel free to look around. I don't speak much and am quite shy, 
 
 ISFP-T 。9w1
 
-![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Straight%20ally.png)
+![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Straight%20ally.png)
 
 all interactions are platonic as i'm taken (10.24.20 ❤︎)
+
+🟢 - chilling/int
+
+🌙 - idle/off-tab
+
+⛔ - i don't use this.
+
+💬 - int
+
+🎭 - i don't use this, either.
 
 <hr> <p></p>
 </details>
