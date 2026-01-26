@@ -221,4 +221,4 @@ Foot Soldier (PVZ) 。Zoey (L4D/L4D2)
 
 [Atabook](https://cobaltsituationiscrazy.atabook.org/) 。[Guns.lol](https://guns.lol/cobaltpng) 。[Pronouns.Page](https://en.pronouns.page/@CobaIt) 。[Spacehey](https://spacehey.com/cobaltpng) 。[StrawPage](https://cobaltsitutationiscrazy.straw.page/)
 
-[![Hits](https://hits.sh/github.com/cobaltpng/hits.svg?style=plastic&label=fellow%20zombies&color=556e35&labelColor=5d783a)](https://hits.sh/github.com/cobaltpng/hits/)
+[![Hits](https://hits.sh/github.com/cobaltsituationiscrazy/hits.svg?style=plastic&label=fellow%20zombies&color=556e35&labelColor=5d783a)](https://hits.sh/github.com/cobaltsituationiscrazy/hits/)
