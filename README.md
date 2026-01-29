@@ -2,161 +2,144 @@
 
 <details>
 <summary>
-◜ basic info 。
+abt me
 </summary>
   
 ###
 
-Hey and welcome. Feel free to look around. I don't speak much and am quite shy, but am easy-going and friendly.
+Hey, it's a pleasure to meet you. Feel free to look around. Although I don't speak much because I'm quite shy, I'm generally easy-going and friendly
 
-。🪖    ⠀⠀cobalt⠀⠀⠀ᵔ⠀⠀⠀she⠀／　her
+I'm above Ontario's drinking age, and appreciate being left out of drama that doesn't have to do w/me
 
-◜ above Canada's drinking age 。 ♐︎
+C+H is always allowed unless stated otherwise. I'm also always open to interacting with others unless otherwise stated, too
 
-◜ c+h is always allowed unless stated otherwise 。 int
+I'm easier to speak to in whispers as I'm frequently off-tab
 
-ISFP-T 。9w1
+I can't read tones too well and appreciate tone tags. I barely use them myself, but I'm not opposed to using them if requested to
 
-![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Straight%20ally.png)
+⠀。⠀![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Straight%20ally.png)⠀⠀ᵔ⠀⠀all interactions are platonic as I'm taken (10.24.20 ❤︎)
 
-all interactions are platonic as i'm taken (10.24.20 ❤︎)
+⠀。⠀ISFP-T⠀⠀ᵔ⠀⠀9w1
 
-🟢 - chilling/int
+🟢 - chilling, open to interactions
 
-🌙 - idle/off-tab
+🌙 - afk/off-tab, w2i
 
-⛔ - i don't use this.
+⛔ - i don't use this
 
-💬 - int
+💬 - same as 🟢
 
-🎭 - i don't use this, either.
+🎭 - same as ⛔
 
 <hr> <p></p>
 </details>
 
 <details>
 <summary>
-◜ byi 。
+before you interact
 </summary>
-  
+
 ###
 
-▸ don't associate my friends w/me. i don't agree/know everything they do/say.
+▸ Don't associate me with my friends, pls. I don't agree with/know everything they do or say
 
-▸ i believe in my mind my ocs are alive, feel their own things, have their own interests, etc. certain ocs don't like getting touched w/o permission, so pls respect their boundaries.
+▸ I believe in my mind, my OCs are alive and feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect their boundaries
 
-▸ i block/hide freely depending on if you fit my dni or not, or have harassed me/my friend(s).
+▸ I block/hide freely depending on whether you meet my dni criteria or not, or have harassed either my friends or me
 
-▸ i can be blunt if someone/something's bothering me
+▸ I can be blunt if someone or something's bothering me
 
-▸ i can't read tone too well and appreciate tone tags. i also use them when i feel they're necessary.
-
-▸ i can't stand arguing, confrontation, or fighting, and would appreciate being left out of drama.
-
-▸ if i'm bothering you, reach out. i'd much rather sort things civilly.
-
-▸ i'm easier to speak to in whispers as i'm usually off-tab.
-
+If I'm bothering you, pls tell me. I'd rather sort things civilly
 <hr> <p></p>
 </details>
 
 <details>
 <summary>
-◜ dni + iwc/iwec 。
+don't interact + interact with care/extreme care
 </summary>
-  
+
 ###
 
-▸ basic critera (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolitas, maps/pedos, racist, zionist, zoophile)
+▸ Basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolitas, maps/pedos, racist, zionist, zoophile)
 
-▸ Countryhumans, D/QSMP, Fazclaire's/FNIA, HB/HH/VivziePop apologists, Jonochrome, SP, TCOAALL
+▸ Countryhumans, Dream/QuackitySMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome (creator of One Night At Flumpty's) apologists, South Park, The Coffin of Andy and Leyley
 
-▸ Betilla x Rayman (that's his mum)
+▸ Betilla x Rayman shippers (Betilla's his mum)
 
-▸ Crazy Dave x Dr. Zomboss (it makes me uncomfortable)
+▸ Crazy Dave x Dr. Zomboss shippers (it makes me uncomfy)
 
-▸ Harley Quinn x Poison Ivy (had it tried to be shoved down my throat too many times)
+▸ Harley Quinn x Poison Ivy (it's been tried to be shoved down my throat multiple times)
 
 ▸ Nina The Killer (I can't stand her)
 
-▸ pedo/r*pe jokes
+▸ Pedo/~~rape~~ jokes
 
 ▸ Spawnism
-
 <hr> <p></p>
+</details>
 
 <details>
 <summary>
-◜ iwc/iwec 。
+interact with care/extreme care
 </summary>
-  
+
 ###
 
-▸ enemies-to-lovers ships (i don't like it most of the time).
+▸ Enemies-to-lovers ships (I dislike it most of the time)
 
-▸ Forsaken fans
+▸ Forsaken fans 
 
-▸ politics talk (idc talking abt it, but not for long)
+▸ Politics talk (idc speaking abt it briefly)
 
-▸ religion talk (i've had others' religions tried to be forced on me before)
+▸ Religion talk (i've had religion tried to be forced on me before)
 
-▸ 'femboy' and 'twink' term usage
-
+▸ The terms 'femboy' and 'twink' (it makes me a little uncomfy)
 <hr> <p></p>
-</details>
 </details>
 
 <details>
 <summary>
-◜ interests 。
+interests
 </summary>
-  
+
 ###
 
 *Italic* = hyperfixation
 
-I adore interacting w/fellow fans and speaking abt my hyperfixations; however, I am not in any of the listed fandoms.
-
 <details>
 <summary>
-◜ games 。
+games
 </summary>
-  
+
 ###
 
 Amnesia series 。Animal Crossing: New Horizons 。Bugsnax 。Club Penguin 。Deep Rock Galactic 。Enter The Gungeon 。Fallout series 。FNAF series 。Fortnite 。Garry's Mod 。Garten of BanBan series 。GTA V 。Identity V 。Left 4 Dead & Left 4 Dead 2 。Mario in general 。One Night At Flumpty's series 。Palworld 。Payday 2 & Payday 3 。Pizza Tower 。*Plants Vs. Zombies series* 。*Pokemon in general* 。Poppy Playtime series 。*Rayman series* 。Roblox 。*Sly series* 。Team Fortress 2 。Terraria 。The Sims 4 。Totally Accurate Battle Simulator 。Webfishing 。Zuma series
-
 <hr> <p></p>
 
 <details>
 <summary>
-◜ roblox specific 。
+roblox specific games
 </summary>
   
 ###
 
-Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fisch 。Nico's Nextbots 。showcase games
-
+Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fractured 。Fisch 。Nico's Nextbots 。showcase games
 <hr> <p></p>
-</details>
-
-</details>
+</details></details>
 
 <details>
 <summary>
-◜ media 。
+media
 </summary>
-  
+
 ###
 
 Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the 2019 movie) 。Ghost Adventures 。Indiana Jones series 。Rick and Morty 。Shrek series 。Smiling Friends 。The Brave Little Toaster 。The Wiggles (w/the original cast) 。Toy Story series
-
 <hr> <p></p>
-</details>
 
 <details>
 <summary>
-◜ youtubers 。
+youtubers
 </summary>
   
 ###
@@ -164,11 +147,11 @@ Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the
 Cold Ones 。Cr1tiKaL 。*Fresh Cut Slim* 。Markiplier 。MrHalloweenJunkie 。Poofesure 。Pyrocynical 。SomeOrdinaryGamers 。The Librarian 。WickedWiz
 
 <hr> <p></p>
-</details>
+</details></details>
 
 <details>
 <summary>
-◜ misc. 。
+miscellaneous
 </summary>
   
 ###
@@ -176,13 +159,11 @@ Cold Ones 。Cr1tiKaL 。*Fresh Cut Slim* 。Markiplier 。MrHalloweenJunkie 。
 Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC 。*dragons* 。Disney 。Homestuck (web comic) 。marine life 。Marvel 。oc x oc ships 。pirates
 
 <hr> <p></p>
-</details>
-
-</details>
+</details></details>
 
 <details>
 <summary>
-◜ collection of stamps 。
+stamps
 </summary>
 
 ###
@@ -192,25 +173,20 @@ Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC �
 
 <details>
 <summary>
-◜ comfort characters + kins 。
+comfort characters + kins
 </summary>
 
 ###
-
-<ins>Comfort Characters</ins>
 
 *italic* = heavy comfort character
 
 Allan (Smiling Friends) 。*Bentley (Sly series)* 。*Cpt. Feathersword (The Wiggles)* 。*Dimitri Lousteau (Sly series)* 。*DJ Spit (Smiling Friends)* 。*Dr. Zomboss (PVZ series)* 。*Foxy (FNAF series)* 。*Globox (Rayman series)* 。Junkrat (Overwatch) 。*Kamek (Mario)* 。Lemongrab (Adventure Time) 。*Murray (Sly series)* 。*Papyrus (UnderTale)* 。*Party Brainz (PVZ:GW2)* 。Pinocchio (Shrek) 。*Rayman (Rayman series)* 。Randall Boggs (Monsters Inc.) 。*Sly Cooper (Sly)* 。Snow Miser (The Year Without a Santa Claus) 。Sun (FNAF: SB) 。*Super Brainz (PVZ:GW2)* 。The Joker (DC) 。Toy Freddy (FNAF)
 
+<hr> <p></p>
 <details>
 <summary>
-◜ kins 。
+kins
 </summary>
-
-###
-
-<ins>Kins</ins>
 
 ###
 
