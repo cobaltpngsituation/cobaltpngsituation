@@ -49,7 +49,7 @@ before you interact
 
 ▸ I can be blunt if someone or something's bothering me
 
-If I'm bothering you, pls tell me. I'd rather sort things civilly
+▸ If I'm bothering you, pls tell me. I'd rather sort things civilly
 <hr> <p></p>
 </details>
 
