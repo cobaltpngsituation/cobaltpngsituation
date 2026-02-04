@@ -15,8 +15,6 @@ Although I don't speak much bc of shyness and social awkwardness, I'm generally 
 
 All interactions are platonic 。 10.24.20 𖹭
 
-C+H is always allowed if not stated otherwise.
-
 ISFP-T 。 9w1
 </details>
 <details>
