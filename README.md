@@ -2,20 +2,18 @@
 
 <details>
 <summary>
-abt me
+🛈
 </summary>
   
 ###
 
-Hey, it's a pleasure to meet you. Feel free to look around. Although I don't speak much because I'm quite shy, I'm generally easy-going and friendly
+Hey, I'm Cobalt. I'm above Ontario's drinking age, and prefer to be left out of e-drama that doesn't have to do with me. I hop on Pony Town to have in the bg, or sit with friends. Although I don't speak much due to being shy and socially awkward, I'm easy-going, and friendly generally, being unopposed to roleplaying or speaking to strangers; However, I don't accept friend requests straight away, as firstly, I'd like to get to know you more.
 
-I'm above Ontario's drinking age, and appreciate being left out of drama that doesn't have to do w/me
+I'm above Ontario's drinking age and prefer being left out of e-drama that doesn't have to do w/me.
 
-C+H is always allowed unless stated otherwise. I'm also always open to interacting with others unless otherwise stated, too
+C+H is always allowed unless it's not in my pony's name. 
 
-I'm easier to speak to in whispers as I'm frequently off-tab
-
-I can't read tones too well and appreciate tone tags. I barely use them myself, but I'm not opposed to using them if requested to
+I'm easier to speak to in whispers as I'm almost always off-tab, and I also can't read tones too well and appreciate tone tags, but barely use them myself, though I am not opposed to using them.
 
 ⠀。⠀![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Straight%20ally.png)⠀⠀ᵔ⠀⠀all interactions are platonic as I'm taken (10.24.20 ❤︎)
 
@@ -41,13 +39,13 @@ before you interact
 
 ###
 
-▸ Don't associate me with my friends, pls. I don't agree with/know everything they do or say
+▸ Don't associate me with my friends. I don't agree with or know everything they do or say.
 
-▸ I believe in my mind, my OCs are alive and feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect their boundaries
+▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain ocs don't like getting touched w/o permission, so pls respect their boundaries.
 
-▸ I block/hide freely depending on whether you meet my dni criteria or not, or have harassed either my friends or me
+▸ I freely hide people if you meet my dni or not, or if you've harassed my friends or me.
 
-▸ I can be blunt if someone or something's bothering me
+▸ I can be blunt if someone/something's bothering me.
 
 ▸ If I'm bothering you, pls tell me. I'd rather sort things civilly
 <hr> <p></p>
