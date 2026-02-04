@@ -15,7 +15,7 @@ Although I don't speak much bc of shyness and social awkwardness, I'm generally 
 
 All interactions are platonic 。 10.24.20 𖹭
 
-C+h is always allowed if it's in my pony's name
+C+H is always allowed if not stated otherwise.
 
 ISFP-T 。 9w1
 </details>
