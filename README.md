@@ -116,6 +116,7 @@ Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the
 Cold Ones 。Cr1tiKaL 。Fresh Cut Slim 。Markiplier 。MrHalloweenJunkie 。Poofesure 。Pyrocynical 。SomeOrdinaryGamers 。The Librarian 。WickedWiz
 <hr> <p></p>
 </details></details>
+<details>
 <summary>
 misc.
 </summary>
@@ -124,7 +125,7 @@ misc.
 
 Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC 。dragons 。Disney 。Homestuck (web comic) 。marine life 。Marvel 。oc x oc ships 。pirates
 <hr> <p></p>
-</details>
+</details></details>
 <details>
 <summary>
 stamps
