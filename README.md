@@ -7,97 +7,81 @@
   
 ###
 
-Hey, I'm Cobalt. I'm above Ontario's drinking age, and prefer to be left out of e-drama that doesn't have to do with me. I hop on Pony Town to have in the bg, or sit with friends. Although I don't speak much due to being shy and socially awkward, I'm easy-going, and friendly generally, being unopposed to roleplaying or speaking to strangers; However, I don't accept friend requests straight away, as firstly, I'd like to get to know you more.
+Hey, I'm Cobalt. I play Pony Town to have it in the background, or sit with friends.
 
-I'm above Ontario's drinking age and prefer being left out of e-drama that doesn't have to do w/me.
+⠀。⠀above Ontario's drinking age⠀⠀ᵔ⠀
 
-C+H is always allowed unless it's not in my pony's name. 
+Although I don't speak too much due to being shy and socially awkward, I'm easy-going and friendly generally, and unopposed to roleplaying or speaking to strangers, though I don't accept friend requests immediately, as I'd like to get to know you more, first. I can't read tones too well and appreciate tone tags, but barely incorporate them in my messages myself, however I'm not opposed to using them if requested to. I'm also easier to speak to in whispers as I'm almost always off-tab.
 
-I'm easier to speak to in whispers as I'm almost always off-tab, and I also can't read tones too well and appreciate tone tags, but barely use them myself, though I am not opposed to using them.
-
-⠀。⠀![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demiromantic%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Demisexual%20flag.png) + ![](https://file.garden/Z0TC-0mCggxGeVLO/Icons/Pride%20flags/Straight%20ally.png)⠀⠀ᵔ⠀⠀all interactions are platonic as I'm taken (10.24.20 ❤︎)
+⠀。⠀all interactions are platonic⠀⠀ᵔ⠀⠀happily taken (10.24.20 💙)
 
 ⠀。⠀ISFP-T⠀⠀ᵔ⠀⠀9w1
-
-🟢 - chilling, open to interactions
-
-🌙 - afk/off-tab, w2i
-
-⛔ - i don't use this
-
-💬 - same as 🟢
-
-🎭 - same as ⛔
 
 <hr> <p></p>
 </details>
 
 <details>
 <summary>
-before you interact
+.ᐟ.ᐟ byi
 </summary>
 
 ###
 
-▸ Don't associate me with my friends. I don't agree with or know everything they do or say.
+▸ Don't associate me with my friends. I'm myself, not them, and don't agree with or know about everything they do or say.
 
 ▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain ocs don't like getting touched w/o permission, so pls respect their boundaries.
 
 ▸ I freely hide people if you meet my dni or not, or if you've harassed my friends or me.
 
-▸ I can be blunt if someone/something's bothering me.
+▸ I can be blunt if someone/something's bothering me. If I'm bothering you, please tell me as I'd rather sort things civilly.
 
-▸ If I'm bothering you, pls tell me. I'd rather sort things civilly
 <hr> <p></p>
 </details>
 
 <details>
 <summary>
-don't interact + interact with care/extreme care
+✖ dni + iwc/iwec
 </summary>
 
 ###
 
-▸ Basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolitas, maps/pedos, racist, zionist, zoophile)
+▸ Basic criteria.
 
-▸ Countryhumans, Dream/QuackitySMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome (creator of One Night At Flumpty's) apologists, South Park, The Coffin of Andy and Leyley
+▸ Countryhumans, DSMP, Fazclaire's/FNIA, HB/HH/VivziePop apologists, Jonochrome, South Park, TCOAALL (Fazclaire's/FNIA and TCOAALL ponies WILL be hidden on sight)
 
-▸ Betilla x Rayman shippers (Betilla's his mum)
+▸ Betilla x Rayman shippers (Betilla's his mum).
 
-▸ Crazy Dave x Dr. Zomboss shippers (it makes me uncomfy)
+▸ Crazy Dave x Dr. Zomboss shippers (it makes me uncomfy).
 
-▸ Harley Quinn x Poison Ivy (it's been tried to be shoved down my throat multiple times)
+▸ Harley Quinn x Poison Ivy (its attempted to be shove down my throat too many times).
 
-▸ Nina The Killer (I can't stand her)
+▸ Nina The Killer (I can't stand her).
 
 ▸ Pedo/~~rape~~ jokes
 
 ▸ Spawnism
 <hr> <p></p>
-</details>
 
 <details>
 <summary>
-interact with care/extreme care
+iwc/iwec
 </summary>
 
 ###
 
 ▸ Enemies-to-lovers ships (I dislike it most of the time)
 
-▸ Forsaken fans 
+▸ Forsaken fans
 
 ▸ Politics talk (idc speaking abt it briefly)
 
 ▸ Religion talk (i've had religion tried to be forced on me before)
-
-▸ The terms 'femboy' and 'twink' (it makes me a little uncomfy)
 <hr> <p></p>
-</details>
+</details></details>
 
 <details>
 <summary>
-interests
+𖹭 interests
 </summary>
 
 ###
@@ -106,7 +90,7 @@ interests
 
 <details>
 <summary>
-games
+🎮 games
 </summary>
 
 ###
@@ -127,7 +111,7 @@ Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fractured 。Fisch
 
 <details>
 <summary>
-media
+📺 media
 </summary>
 
 ###
@@ -149,7 +133,7 @@ Cold Ones 。Cr1tiKaL 。*Fresh Cut Slim* 。Markiplier 。MrHalloweenJunkie 。
 
 <details>
 <summary>
-miscellaneous
+misc.
 </summary>
   
 ###
