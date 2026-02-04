@@ -50,6 +50,10 @@ ISFP-T 。 9w1
 
 ▸ Crazy Dave x Dr. Zomboss shippers (it makes me uncomfy)
 
+▸ Cosmo x Sprout shippers (it's been attempted to be shoved down my throat too many times)
+
+▸ Ginger x Sprout shippers (it makes me uncomfy)
+
 ▸ Harley Quinn x Poison Ivy (it's been attempted to be shoved down my throat too many times)
 
 ▸ Nina The Killer (I can't stand her)
