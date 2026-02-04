@@ -45,17 +45,17 @@ Although I don't speak too much due to being shy and socially awkward, I'm easy-
 
 ###
 
-▸ Basic criteria.
+▸ Basic criteria
 
 ▸ Countryhumans, DSMP, Fazclaire's/FNIA, HB/HH/VivziePop apologists, Jonochrome, South Park, TCOAALL (Fazclaire's/FNIA and TCOAALL ponies WILL be hidden on sight)
 
-▸ Betilla x Rayman shippers (Betilla's his mum).
+▸ Betilla x Rayman shippers (Betilla's his mum)
 
-▸ Crazy Dave x Dr. Zomboss shippers (it makes me uncomfy).
+▸ Crazy Dave x Dr. Zomboss shippers (it makes me uncomfy)
 
-▸ Harley Quinn x Poison Ivy (its attempted to be shove down my throat too many times).
+▸ Harley Quinn x Poison Ivy (its attempted to be shove down my throat too many times)
 
-▸ Nina The Killer (I can't stand her).
+▸ Nina The Killer (I can't stand her)
 
 ▸ Pedo/~~rape~~ jokes
 
@@ -100,7 +100,7 @@ Amnesia series 。Animal Crossing: New Horizons 。Bugsnax 。Club Penguin 。De
 
 <details>
 <summary>
-roblox specific games
+🎮 roblox specific games
 </summary>
   
 ###
@@ -121,7 +121,7 @@ Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the
 
 <details>
 <summary>
-youtubers
+🎧 youtubers
 </summary>
   
 ###
