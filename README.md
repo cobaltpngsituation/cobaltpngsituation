@@ -2,7 +2,7 @@
 
 <details>
 <summary>
-🛈
+ⓘ
 </summary>
   
 ###
