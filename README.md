@@ -32,7 +32,7 @@ ISFP-T 。 9w1
 
 ▸ I freely hide people if you meet my dni or not, or if you've harassed my friends or me.
 
-▸ If I randomly stop talking, it's nobody's fault. I don't know what to say most of the time.
+▸ If I randomly stop talking, it's nobody's fault. I don't know what to say frequently.
 <hr> <p></p>
 </details>
 <details>
