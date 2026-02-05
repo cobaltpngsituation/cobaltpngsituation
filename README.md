@@ -28,9 +28,11 @@ ISFP-T 。 9w1
 
 ▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain ocs don't like getting touched w/o permission, so pls respect their boundaries.
 
+▸ I can be blunt if someone/something's bothering me. If I'm bothering you, please tell me, as I'd rather sort things civilly.
+
 ▸ I freely hide people if you meet my dni or not, or if you've harassed my friends or me.
 
-▸ I can be blunt if someone/something's bothering me. If I'm bothering you, please tell me, as I'd rather sort things civilly.
+▸ If I randomly stop talking, it's nobody's fault. I don't know what to say most of the time.
 <hr> <p></p>
 </details>
 <details>
