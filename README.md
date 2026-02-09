@@ -7,11 +7,15 @@
 
 ###
 
-Hey, I'm Cobalt. I play Pony Town to have it in the bg and chill, or sit with friends.
+Hey, I'm Cobalt, it's a pleasure to make your acquaintance. I play Pony Town to chill and have it in the background, or to sit with one or more friends, the latter being most of the time.
 
-As I'm above Ontario's drinking age, I'd appreciate being left out of e-drama that doesn't have to do with me, please.
+I'm above Canada's drinking age and appreciate being left out of e-drama that doesn't have to do with me.
 
-Although I don't speak much bc of shyness and social awkwardness, I'm generally easy-going and friendly, and unopposed to chatting or roleplaying with strangers; However, I don't accept frqs immediately as I'd like to get to know you more, first. I'm easier to speak to in whispers due to almost always being off-tab, but I can't read tones too well, so tone indicators/tags are appreciated but not forced, and although I barely incorporate them in my messages myself, I am not opposed to using them if requested to.
+Although I don't speak too much due to shyness and social awkwardness, I'm caring, easy-going, and friendly. I'm unopposed to roleplaying or speaking to strangers, however I don't accept friend requests right off the bat as I'd like to get to know you more, first. 
+
+I can't read tones too well, and so tone indicators/tags are appreciated, but not forced. I barely Incorporate them in my messages, either, but can if requested to.
+
+I'm easier to reach in whispers as I'm almost always off-tab.
 
 All interactions are platonic 。 10.24.20 𖹭
 
