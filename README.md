@@ -153,7 +153,7 @@ comfort characters + kins
 
 *italic* = heavy comfort character
 
-Allan (Smiling Friends) 。*Bentley (Sly series)* 。*Cpt. Feathersword (The Wiggles)* 。*Dimitri Lousteau (Sly series)* 。*DJ Spit (Smiling Friends)* 。*Dr. Zomboss (PVZ series)* 。*Foxy (FNAF series)* 。*Globox (Rayman series)* 。Junkrat (Overwatch) 。*Kamek (Mario)* 。Lemongrab (Adventure Time) 。*Murray (Sly series)* 。*Papyrus (UnderTale)* 。*Party Brainz (PVZ:GW2)* 。Pinocchio (Shrek) 。*Rayman (Rayman series)* 。Randall Boggs (Monsters Inc.) 。*Sly Cooper (Sly)* 。Snow Miser (The Year Without a Santa Claus) 。Sun (FNAF: SB) 。*Super Brainz (PVZ:GW2)* 。The Joker (DC) 。Toy Freddy (FNAF)
+Allan (Smiling Friends), *Bentley (Sly series)*, *Cpt. Feathersword (The Wiggles)*, *Dimitri Lousteau (Sly series)*, *DJ Spit (Smiling Friends)*, *Dr. Zomboss (PVZ series)*, *Foxy (FNAF series)*, *Globox (Rayman series)*, Junkrat (Overwatch), *Kamek (Mario)*, Lemongrab (Adventure Time), *Murray (Sly series)*, *Papyrus (UnderTale)*, *Party Brainz (PVZ:GW2)*, Pinocchio (Shrek), *Rayman (Rayman series)*, Randall Boggs (Monsters Inc.), *Sly Cooper (Sly series)*, Snow Miser (The Year Without a Santa Claus), Sun (FNAF: SB), *Super Brainz (PVZ:GW2)*, The Joker (DC), Toy Freddy (FNAF)
 <details>
 <summary>
 kins
@@ -161,10 +161,10 @@ kins
 
 ###
 
-Foot Soldier (PVZ) 。Zoey (L4D/L4D2)
+Foot Soldier (PVZ), Zoey (L4D/L4D2)
 <hr> <p></p>
 </details></details>
 
 [Atabook](https://cobaltpng.atabook.org/) 。[Guns.lol](https://guns.lol/cobaltpng) 。[Pronouns.Page](https://en.pronouns.page/@Cobaltpng) 。[Spacehey](https://spacehey.com/cobaltpng) 。[StrawPage](https://cobaltsitutationiscrazy.straw.page/)
 
-[![Hits](https://hits.sh/github.com/cobaltsituation.svg?style=plastic&label=passerby&color=556e35&labelColor=5d783a)](https://hits.sh/github.com/cobaltsituation/)
+[![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=passerby&color=556e35&labelColor=5d783a)](https://hits.sh/github.com/cobaltsituationiscrazy/)
