@@ -7,19 +7,19 @@
 
 ###
 
-Hey, I'm Cobalt, it's a pleasure to make your acquaintance. I play Pony Town to chill and have it in the background, or to sit with one or more friends, the latter being most of the time.
+Hey, I'm Cobalt. It's a pleasure to make your acquaintance. I play Pony Town to chill and have it in the background, or to sit with friends, the latter being almost all of the time.
 
-I'm above Canada's drinking age and appreciate being left out of e-drama that doesn't have to do with me.
+I'm above Ontario's drinking age and appreciate being left out of e-drama that doesn't have to do with me.
 
-Although I don't speak too much due to shyness and social awkwardness, I'm caring, easy-going, and friendly. I'm unopposed to roleplaying or speaking to strangers, however I don't accept friend requests right off the bat as I'd like to get to know you more, first. 
+Although I don't speak much due to shyness and social awkwardness, I'm caring, easy-going, and friendly. I'm unopposed to roleplaying or speaking with strangers, but I don't accept friend requests right off the bat as I'd like to get to know you more first.
 
-I can't read tones too well, and so tone indicators/tags are appreciated, but not forced. I barely Incorporate them in my messages, either, but can if requested to.
+I can't read tones too well, so tone indicators/tags are appreciated, but not forced. I barely incorporate them in my messages myself, but can if requested to.
 
-I'm easier to reach in whispers as I'm almost always off-tab.
+I'm easier to speak to in whispers as I'm almost always off-tab.
 
-All interactions are platonic 。 10.24.20 𖹭
+All interactions are platonic ◝⠀ 10.24.20 💙
 
-ISFP-T 。 9w1
+ISFP-T ◝⠀ 9w1
 </details>
 <details>
 <summary>
@@ -28,11 +28,11 @@ ISFP-T 。 9w1
 
 ###
 
-▸ Don't associate me with my friends. I'm myself, not them, and don't agree with or know about everything they do or say.
+▸ Don't associate me with my friends, please. I'm myself, not them, and am not aware of everything they do or say.
 
-▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain ocs don't like getting touched w/o permission, so pls respect their boundaries.
+▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect their boundaries.
 
-▸ I can be blunt if someone/something's bothering me. If I'm bothering you, please tell me, as I'd rather sort things civilly.
+▸ I can be blunt if someone/something's bothering me, but if I'm bothering you, please tell me, as I'd rather sort things civilly.
 
 ▸ I freely hide people if you meet my dni or not, or if you've harassed my friends or me.
 
@@ -48,23 +48,24 @@ ISFP-T 。 9w1
   
 ▸ Basic criteria
 
-▸ Countryhumans, DSMP, Fazclaire's/FNIA, HB/HH/VivziePop apologists, Jonochrome, South Park, TCOAALL (Fazclaire's/FNIA and TCOAALL ponies WILL be hidden on sight)
+▸ Countryhumans, DSMP, Fazclaire's/FNIA, HB/HH/Vivziepop apologists, Jonochrome, SP, TCOAALL
 
-▸ Betilla x Rayman shippers (Betilla's his mum)
+▸ Betilla x Rayman (Betilla's his mum)
 
-▸ Crazy Dave x Dr. Zomboss shippers (it makes me uncomfy)
+▸Crazy Dave x Dr. Zomboss (it makes me uncomfortable)
 
-▸ Cosmo x Sprout shippers (it's been attempted to be shoved down my throat too many times)
+▸Fruitcake (it's attempted to be shoved down my throat too many times before)
 
-▸ Ginger x Sprout shippers (it makes me uncomfy)
+▸ Ginger x Sprout (same as Crazy Dave x Dr. Zomboss)
 
-▸ Harley Quinn x Poison Ivy (it's been attempted to be shoved down my throat too many times)
+▸Harlivy (same as Fruitcake)
 
 ▸ Nina The Killer (I can't stand her)
 
-▸ Pedo/~~rape~~ jokes
+▸Pedo/rape jokes
 
-▸ Spawnism
+▸Spawnism
+
 <hr> <p></p>
 <details>
 <summary>
@@ -77,7 +78,7 @@ ISFP-T 。 9w1
 
 ▸ Forsaken fans
 
-▸ Politics talk (idc speaking abt it briefly)
+▸ Politics talk
 
 ▸ Religion talk (i've had religion tried to be forced on me before)
 <hr> <p></p>
@@ -97,8 +98,7 @@ ISFP-T 。 9w1
 
 ###
 
-Amnesia series 。Animal Crossing: New Horizons 。Bugsnax 。Club Penguin 。Deep Rock Galactic 。Enter The Gungeon 。Fallout series 。FNAF series 。Fortnite 。Garry's Mod 。Garten of BanBan series 。GTA V 。Identity V 。Left 4 Dead & Left 4 Dead 2 。Mario in general 。One Night At Flumpty's series 。Palworld 。Payday 2 & Payday 3 。Pizza Tower 。Plants Vs. Zombies series 。Pokemon in general 。Poppy Playtime series 。Rayman series 。Roblox 。Sly series 。Team Fortress 2 。Terraria 。The Sims 4 。Totally Accurate Battle Simulator 。Webfishing 。Zuma series
-
+Amnesia series, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Deep Rock Galactic, Enter The Gungeon, Fallout series, FNAF series, Fortnite, Garry's Mod, GoBB series, GTA V, IDV, L4D + L4D2, Mario in general, ONAF series, Palworld, Payday 2 + 3, Pizza Tower, *Plants Vs. Zombies series*, *Pokémon in general*, *Rayman series*, Roblox, *Sly series*, TF2, Terraria, The Sims 4, TABS, Webfishing, Zuma series
 <details>
 <summary>
 🎮 roblox games
@@ -106,7 +106,7 @@ Amnesia series 。Animal Crossing: New Horizons 。Bugsnax 。Club Penguin 。De
 
 ###
 
-Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fractured 。Fisch 。Nico's Nextbots 。showcase games
+Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured 。Fisch, Nico's Nextbots, showcase games
 <hr> <p></p>
 </details></details>
 <details>
@@ -116,12 +116,12 @@ Dandy's World 。Depth Spelunking 。Die Of Death 。Evade 。Fractured 。Fisch
 
 ###
 
-Beavis and Butthead 。Blue's Clues 。Care Bears 。Child's Play (excluding the 2019 movie) 。Ghost Adventures 。Indiana Jones series 。Rick and Morty 。Shrek series 。Smiling Friends 。The Brave Little Toaster 。The Wiggles (w/the original cast) 。Toy Story series
+Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, Indiana Jones series, Rick and Morty, Shrek series 。Smiling Friends, The Brave Little Toaster, The Wiggles (w/the original cast), Toy Story series
 <details>
 <summary>
 📺 youtubers
 </summary>
-Cold Ones 。Cr1tiKaL 。Fresh Cut Slim 。Markiplier 。MrHalloweenJunkie 。Poofesure 。Pyrocynical 。SomeOrdinaryGamers 。The Librarian 。WickedWiz
+Arlo, Cold Ones, Cr1tiKaL, *Fresh Cut Slim*, Markiplier, MrHalloweenJunkie, Poofesure 。Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz
 <hr> <p></p>
 </details></details>
 <details>
