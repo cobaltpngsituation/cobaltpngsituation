@@ -9,8 +9,8 @@
 <summary>BYI (before you interact)</summary>
   
 ###
-  
-▸Don't associate me with my friends, pls. I'm myself, not them, and don't agree with or know everything they do or say.
+
+▸ Don't associate me with my friends, pls. I'm myself, not them, and don't agree with or know everything they do or say.
   
 ▸ I believe my ocs are alive in my mind, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect their boundaries.
 
@@ -18,7 +18,9 @@
 
 ▸ I can be blunt if someone/thing's bothering me, but if I'm bothering you, pls tell me.
 
-▸ If I randomly go silent, it's nobody's fault. I frequently have no idea what to say.</details>
+▸ If I randomly go silent, it's nobody's fault. I frequently have no idea what to say.
+
+▸ I'm easier to speak to in whispers, as most of the time, I'm off-tab.</details>
 
 <details>
 <summary>DNI (do not interact) + iwc/iwec (interact with care/extreme care)</summary>
