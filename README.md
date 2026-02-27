@@ -77,7 +77,7 @@ c+h is always allowed unless stated otherwise
 
 ▸ Religion talk (i've had religion tried to be forced on me before)
 
-<hr></hr></details></details>
+![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details></details>
 
 <details>
 <summary>Interests</summary>
