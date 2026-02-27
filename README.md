@@ -31,7 +31,9 @@ c+h is always allowed unless stated otherwise
 
 ▸ If I randomly go silent, it's nobody's fault. I frequently have no idea what to say.
 
-▸ I'm easier to speak to in whispers, as most of the time, I'm off-tab.</details>
+▸ I'm easier to speak to in whispers, as most of the time, I'm off-tab.
+
+![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details>
 
 <details>
 <summary>DNI (do not interact) + iwc/iwec (interact with care/extreme care)</summary>
