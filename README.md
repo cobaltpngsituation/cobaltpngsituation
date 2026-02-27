@@ -21,6 +21,8 @@ c+h is always allowed unless stated otherwise
   
 ###
 
+▸ Although I don't speak much due to social awkwardness and shyness, I'm always unopposed to roleplaying or speaking to strangers, but I don't accept friend requests right away, as I'd like to get to know you more first.
+
 ▸ Don't associate me with my friends, pls. I'm myself, not them, and don't agree with or know everything they do or say.
   
 ▸ I believe my ocs are alive in my mind, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect their boundaries.
