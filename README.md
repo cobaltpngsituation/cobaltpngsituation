@@ -8,7 +8,7 @@
 
 ✎﹏ ᴄᴏʙᴀʟᴛ
 
-she/her • abv ON's drinking age • 12.07
+she/her • abv ON's drinking age • 12.07 ♐︎
 
 taken • 10.24.20 :blue_heart:
 
