@@ -6,13 +6,13 @@
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
-✎﹏ ᴄᴏʙᴀʟᴛ
+▸  cobalt⠀•⠀she/her⠀•⠀🪖
 
-she/her • abv ON's drinking age • 12.07 ♐︎
+abv ON's drinking age⠀•⠀12.07 ♐
 
-taken • 10.24.20 :blue_heart:
+happily taken⠀•⠀10.24.20 💙
 
-c+h is always allowed unless stated otherwise
+c+h's always allowed if in my pony's name
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
@@ -21,19 +21,19 @@ c+h is always allowed unless stated otherwise
   
 ###
 
-▸ Although I don't speak much due to social awkwardness and shyness, I'm always unopposed to roleplaying or speaking to strangers, but I don't accept friend requests right away, as I'd like to get to know you more first.
+▸ Although I don't interact first due to being too shy and social awkwardness, I'm always open for interaction and roleplay (unless stated otherwise), however, I don't immediately accept friend requests as I'd like to get to know you more, first.
 
-▸ Don't associate me with my friends, pls. I'm myself, not them, and don't agree with or know everything they do or say.
-  
-▸ I believe my ocs are alive in my mind, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect their boundaries.
+▸ Don't associate me with my friends, please. I'm myself, not them, and don't agree with or know everything my friends do or say.
 
-▸ I block freely if you meet my dni criteria, or have harassed my friends or me.
+▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc.
 
-▸ I can be blunt if someone/thing's bothering me, but if I'm bothering you, pls tell me.
+▸ I block freely depending if you fit my dni criteria or not, or have harassed me, or my friends.
 
-▸ If I randomly go silent, it's nobody's fault. I frequently have no idea what to say.
+▸ I can be blunt if someone/something's bothering me. If *I'm* bothering you, please tell me.
 
-▸ I'm easier to speak to in whispers, as most of the time, I'm off-tab.
+▸ I don't know what to say 99% of the time, so if I randomly go silent, it's not your fault. I also tend to zone out a lot.
+
+▸ I hop onto Pony Town to have it in the background, and sit by myself or with friends, the latter almost all of the time. I'm easier to reach through whispers as I'm almost always off-tab.
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details>
 
@@ -44,7 +44,7 @@ c+h is always allowed unless stated otherwise
   
 ▸ Basic criteria
 
-▸ Countryhumans, DSMP, Fazclaire's/FNIA, HB/HH/Vivziepop apologists, Jonochrome, SP, TCOAALL
+▸ Countryhumans, DSMP, Fazclaire's/FNIA, HB/HH/Vivziepop apologists, Jonochrome, Mouthwashing, SP, TCOAALL
 
 ▸ Betilla x Rayman (Betilla's his mum)
 
@@ -60,7 +60,7 @@ c+h is always allowed unless stated otherwise
 
 ▸Pedo/rape jokes
 
-▸ SnuffBomb (creator of Laughing Jack. I like him, but absolutely do NOT support the creator)
+▸ SnuffBomb (creator of Laughing Jack, whom I like, but I do NOT support the creator)
 
 ▸Spawnism
 
@@ -119,7 +119,7 @@ Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured, Fisch, Nico's N
 
 **bold** = hyperfixation
 
-American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (w/the original cast), Toy Story series
+American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (w/the original cast), Toy Story series
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
@@ -143,7 +143,7 @@ Arlo, Cold Ones, Cr1tiKaL, **Fresh Cut Slim**, Markiplier, MrHalloweenJunkie, Po
 
 ###
 
-Canon x oc, Chicken Smoothie, creepypastas, clowns, DC, **dragons**, Disney, Homestuck, marine life, Marvel, oc x oc, pirates
+Canon x oc, Chicken Smoothie, creepypastas, clowns, DC, dragons, Disney, Homestuck, marine life, Marvel, oc x oc, pirates
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details></details>
 
