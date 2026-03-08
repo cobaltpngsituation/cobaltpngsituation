@@ -81,9 +81,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ▸ Enemies-to-lovers ships (I dislike them most of the time)
 
-▸ Forsaken
-
-▸ Mouthwashing
+▸ Forsaken, Mouthwashing
 
 ▸ Politics talk
 
