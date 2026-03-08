@@ -52,7 +52,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ▸ Basic DNI criteria
 
-▸ Countryhumans, DreamSMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome apologists, Poppy Playtime devs apologists, South Park, The Coffin of Andy and LeyLey
+▸ Countryhumans, DreamSMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome apologists, Poppy Playtime devs apologists, South Park, The Coffin of Andy and LeyLey (Fazclaire's/Five Night's In Anime and The Coffin of Andy and LeyLey ponies WILL be hidden on sight)
 
 ▸ Betilla x Rayman (Betilla's his mum)
 
