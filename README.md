@@ -6,78 +6,86 @@
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
-▸  cobalt⠀•⠀she/her⠀•⠀🪖
+###
 
-abv ON's drinking age⠀•⠀12.07 ♐
+Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so let's start with basic information on myself.
 
-happily taken⠀•⠀10.24.20 💙
+▸ I'm above ON's drinking age, and appreciate being left out of drama that doesn't have to do with me
 
-c+h's always allowed if in my pony's name
+▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched without permission, so please respect their boundaries.
+
+▸ I block freely depending on whether you've harassed my friends or me, or meet my DNI. Please don't take it personally.
+
+▸ I can be blunt if someone or something's bothering me or my friend(s)
+
+▸ I don't interact first as I'm quite shy and socially awkward
+
+▸ I have a partner and will shut down any e-dating request or flirting
+
+▸ I hop on Pony Town to have it in the background and sit by myself or with friends. It's easier to whisper if you'd like to reach me, as I'm almost always off-tab.
+
+▸ I'm naturally quiet, so if I randomly stop talking, it's nobody's fault. I also tend to zone out a lot.
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
 <details>
-<summary>BYI (before you interact)</summary>
-  
+<summary>Before Interacting</summary>
+
 ###
 
-▸ Although I don't interact first due to being too shy and social awkwardness, I'm always open for interaction and roleplay (unless stated otherwise), however, I don't immediately accept friend requests as I'd like to get to know you more, first.
+▸ C+H is always allowed, even if I'm sitting with friends, as long as 'c+h' is in my pony's name.
 
 ▸ Don't associate me with my friends, please. I'm myself, not them, and don't agree with or know everything my friends do or say.
 
-▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc.
+▸ Don't colour-drop, copy, or take inspiration from any of my ponies, please.
 
-▸ I block freely depending if you fit my dni criteria or not, or have harassed me, or my friends.
+▸ I barely incorporate tone indicators in my messages, but can if requested to. I also appreciate them being used as I can't read tone too well over text.
 
-▸ I can be blunt if someone/something's bothering me. If *I'm* bothering you, please tell me.
-
-▸ I don't know what to say 99% of the time, so if I randomly go silent, it's not your fault. I also tend to zone out a lot.
-
-▸ I hop onto Pony Town to have it in the background, and sit by myself or with friends, the latter almost all of the time. I'm easier to reach through whispers as I'm almost always off-tab.
+▸ If I'm bothering you or have done something wrong, please tell me. If I'm clear on my boundaries, I'd appreciate it if you were, too.
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details>
 
 <details>
-<summary>DNI (do not interact) + iwc/iwec (interact with care/extreme care)</summary>
-  
-###
-  
-▸ Basic criteria
+<summary>Don't Interact + Interact With Care</summary>
 
-▸ Countryhumans, DSMP, Fazclaire's/FNIA, HB/HH/Vivziepop apologists, Jonochrome, Mouthwashing, SP, TCOAALL
+###
+
+▸ Basic DNI criteria
+
+▸ Countryhumans, DreamSMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome apologists, Mouthwashing, Poppy Playtime devs apologists, South Park, The Coffin of Andy and LeyLey
 
 ▸ Betilla x Rayman (Betilla's his mum)
 
-▸Crazy Dave x Dr. Zomboss (it makes me uncomfy)
+▸ Cosmo x Sprout/Fruitcake (has been attempted to be shoved down my throat too many times)
 
-▸Fruitcake (it's attempted to be shoved down my throat too many times before)
+▸ Crazy Dave x Dr. Zomboss (it makes me uncomfortable)
 
-▸ Ginger x Sprout (same as Crazy Dave x Dr. Zomboss)
+▸ Ginger x Sprout/Don't Tell Cosmo (same as Crazy Dave x Dr. Zomboss)
 
-▸Harlivy (same as Fruitcake)
+▸ Harlivy (same as Fruitcake)
 
-▸ Nina The Killer (I can't stand her)
+▸ Nina The Killer
 
-▸Pedo/rape jokes
+▸ Pedo/rape jokes
+
+▸ Scout x Spy (Scout's his son)
 
 ▸ SnuffBomb (creator of Laughing Jack, whom I like, but I do NOT support the creator)
 
-▸Spawnism
+▸ Spawnism
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
 <details>
-<summary>Iwc/iwec (interact with care/extreme care)</summary>
+<summary>Interact With Care</summary>
 
-###
+▸ Enemies-to-lovers ships (I dislike them most of the time)
 
-▸ Enemies-to-lovers ships (I dislike it most of the time)
-
-▸ Forsaken fans
+▸ Forsaken
 
 ▸ Politics talk
 
-▸ Religion talk (i've had religion tried to be forced on me before)
+▸ Religion talk (christianity has been attempted to be forced on me before)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details></details>
 
@@ -119,7 +127,7 @@ Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured, Fisch, Nico's N
 
 **bold** = hyperfixation
 
-American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (w/the original cast), Toy Story series
+American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (with the original cast), Toy Story series
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
@@ -167,6 +175,11 @@ Foot Soldier (PVZ series), Zoey (L4D/L4D2)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/3DS%20user.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/AJ.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Amnesia.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Banette.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Beavis%20and%20Butthead.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/BLU%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Bugsnax.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Canon%20x%20OC.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/FNAF%20Chica.webp) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Chucky%20and%20Tiffany%20stamp.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Club%20Penguin.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Cofagrigus.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Dandy's%20World.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Demoman.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Dr.%20Strangeglove.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/DRG.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Espeon.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/FNAF%20Foxy.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Furi.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Game%20boy%20user.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Gmod.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Greninja.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Bentley.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Dr%20Zomboss.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Murray.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Rayman.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20roleplaying.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Sly.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20zombies.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/IDV.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Indie.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Kamek%20stamp.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Katsuma.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Knuxouge.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Krusie.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/L4D.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Looey%20and%20Yatta.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Looey.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Look%20at%20me!.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Lopunny.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Marina.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Markiplier.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Maxmoefoe.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Meowstic.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Mismagius.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Mr.%20Mime%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Overthinking.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Papyrus%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Parasect%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/PC%20user.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Pearl.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Pokemon%20Y.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/PS2%20user.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Pyro.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Rayman%20target.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Rick%20and%20Morty.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Roblox.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sableye.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/SCP.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Scrafty.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Seismitoad.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sf.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Silvaze.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sly%20Cooper%20fan.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Soldier%20main.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sonamy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sonic%20fan.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Talk%20to%20myself.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/TBLT.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Terraria.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Undead%20PVZ%20fan.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Vanilluxe%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Yatta.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Yoshi.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Zommer.gif)
 
-***
+![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Blue.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Enjoys%20listening%20to%20music.pngg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Finds%20comfort%20in%20fictional%20characters.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Is%20a%20zombie%20kin.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/is%20an%20artist.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/likes%20fictional%20villains%20but%20doesn't%20justify%20their%20actions.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/likes%20making%20friends.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20blue%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20Coca-Cola.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20horror%20movies.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20horror.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20mushrooms.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20purple%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20rain%2C%20storms%2C%20thunderstorms%20and%20stuff.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20rainy%20nights.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20red%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20the%20moon.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20their%20friends.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20their%20ocs.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20to%20draw.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20to%20listen%20to%20people%20infodump.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Purple.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20collects%20things.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Yelled%20at.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20doesn't%20understand%20social%20cues%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20grew%20up%20with%20Pokemon%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20has%20poor%20memory%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20HATES%20creative%20block.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20hates%20math.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20is%20very%20attached%20to%20their%20stuffies%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20isn't%20diagnosed%20with%20anything%2C%20but%20smth%20ain't%20right%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20likes%20Coach%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20likes%20Nick%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Animal%20Crossing%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Ballora.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Chica.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20coffee.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Foxy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Mangle.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Minecraft%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Puppet.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Slime%20Rancher%202%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20stuffed%20animals.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Sun.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Toy%20Chica.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Toy%20Freddy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20weirdcore.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/really%20loves%20zombies.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20uses%20dark%20mode%20.jpg)
+
+
+
+
+
