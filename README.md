@@ -52,7 +52,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ▸ Basic DNI criteria
 
-▸ Countryhumans, DreamSMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome apologists, Mouthwashing, Poppy Playtime devs apologists, South Park, The Coffin of Andy and LeyLey
+▸ Countryhumans, DreamSMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome apologists, Poppy Playtime devs apologists, South Park, The Coffin of Andy and LeyLey
 
 ▸ Betilla x Rayman (Betilla's his mum)
 
@@ -82,6 +82,8 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 ▸ Enemies-to-lovers ships (I dislike them most of the time)
 
 ▸ Forsaken
+
+▸ Mouthwashing
 
 ▸ Politics talk
 
