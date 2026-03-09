@@ -64,6 +64,8 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ▸ Harlivy (same as Fruitcake)
 
+▸ MediScout (Scout could be his son with how big their age gap is 💀)
+
 ▸ Nina The Killer
 
 ▸ Pedo/rape jokes
