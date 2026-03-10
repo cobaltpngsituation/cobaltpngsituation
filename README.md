@@ -6,7 +6,7 @@
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
-![Atabook](https://cobaltpng.atabook.org/) • ![Pronouns.page](https://en.pronouns.page/@Cobaltpng) • ![Straw.Page](https://cobaltpng.straw.page/)
+[Atabook](https://cobaltpng.atabook.org/) • [Pronouns.page](https://en.pronouns.page/@Cobaltpng) • [Straw.Page](https://cobaltpng.straw.page/)
 
 ###
 
