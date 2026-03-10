@@ -6,6 +6,8 @@
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
+![Atabook](https://cobaltpng.atabook.org/) • ![Pronouns.page](https://en.pronouns.page/@Cobaltpng) • ![Straw.Page](https://cobaltpng.straw.page/)
+
 ###
 
 Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so let's start with basic information on myself.
