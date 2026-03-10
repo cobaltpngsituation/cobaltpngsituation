@@ -20,7 +20,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ▸ I can be blunt if someone or something's bothering me or my friend(s)
 
-▸ I don't interact first as I'm quite shy and socially awkward
+▸ I don't interact first as I'm quite shy and socially awkward (unless I'm giving you a crown)
 
 ▸ I have a partner and will shut down any e-dating request or flirting
 
