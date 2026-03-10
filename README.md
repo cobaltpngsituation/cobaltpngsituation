@@ -35,7 +35,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ###
 
-▸ C+H is always allowed, as long as 'c+h' is in my name, and even if I'm with friends, I don't mind.
+▸ C+H is always allowed, as long as 'c+h' is in my name (if it's not, it's most likely an oc's preference), and even if I'm with friends, I don't mind.
 
 ▸ Don't associate me with my friends, please. I'm myself, not them, and don't agree with or know everything my friends do or say.
 
