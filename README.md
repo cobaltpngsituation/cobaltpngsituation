@@ -28,6 +28,16 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ▸ I'm naturally quiet, so if I randomly stop talking, it's nobody's fault. I also tend to zone out a lot.
 
+🟢 - Chilling, interactions are ok
+
+💬 - I don't use this.
+
+🎭 - same as above
+
+🌙 - Most likely off-tab, w2i
+
+⛔ - Iwc/iwec
+
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
 <details>
