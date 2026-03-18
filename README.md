@@ -39,7 +39,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
 <details>
-<summary>Before Interacting</summary>
+<summary>BYI</summary>
 
 ###
 
@@ -56,7 +56,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details>
 
 <details>
-<summary>Don't Interact + Interact With Care</summary>
+<summary>DNI + IWC/IWEC</summary>
 
 ###
 
@@ -77,7 +77,7 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
 <details>
-<summary>Interact With Care</summary>
+<summary>IWC/IWEC</summary>
 
 ⟢ Enemies-to-lovers ships
 
