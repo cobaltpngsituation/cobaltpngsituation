@@ -1,6 +1,6 @@
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=5d783a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
 
 [![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=passerby&color=5e9663&labelColor=67a56d)](https://hits.sh/github.com/cobaltsituationiscrazy/)
 
@@ -12,31 +12,29 @@
 
 Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so let's start with basic information on myself.
 
-▸ I'm above ON's drinking age, and appreciate being left out of drama that doesn't have to do with me
+⟢ As I'm above ON's drinking age, I appreciate being left out of drama that doesn't have to do with me.
 
-▸ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched without permission, so please respect their boundaries.
+⟢ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect their boundaries.
 
-▸ I block freely depending on whether you've harassed my friends or me, or meet my DNI. Please don't take it personally.
+⟢ I block freely, based on whether you meet my DNI. Please don't take it personally.
 
-▸ I can be blunt if someone or something's bothering me or my friend(s)
+⟢ I don't interact first due to shyness and social awkwardness (excluding giving crowns)
 
-▸ I don't interact first as I'm quite shy and socially awkward (unless I'm giving you a crown)
+⟢ I have a boyfriend, and will reject any e-dating or flirting request
 
-▸ I have a partner and will shut down any e-dating request or flirting
+⟢ I hop on Pony Town to have it in the background and sit by myself, or with friends. I'm almost always off-tab, so the best way to reach me is through whispers
 
-▸ I hop on Pony Town to have it in the background and sit by myself or with friends. It's easier to whisper if you'd like to reach me, as I'm almost always off-tab.
+⟢ I'm naturally quiet, so if I stop talking suddenly, it's nobody's fault. I also tend to zone out a lot.
 
-▸ I'm naturally quiet, so if I randomly stop talking, it's nobody's fault. I also tend to zone out a lot.
-
-🟢 - Chilling, interactions are ok
+🟢 - chilling, interactions are ok
 
 💬 - I don't use this.
 
 🎭 - same as above
 
-🌙 - Most likely off-tab, w2i
+🌙 - off-tab, whisper to interact
 
-⛔ - Iwc/iwec
+⛔ - iwc/iwec
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
@@ -45,15 +43,15 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ###
 
-▸ C+H is always allowed, as long as 'c+h' is in my name (if it's not, it's most likely an oc's preference), and even if I'm with friends, I don't mind.
+⟢ C+H is always allowed as long as it's in my name, and even if I'm sitting with friends (if it's not, it's most likely an OC's preference)
 
-▸ Don't associate me with my friends, please. I'm myself, not them, and don't agree with or know everything my friends do or say.
+⟢ Don't associate me with my friends. I'm myself, and don't know everything they do and/or say.
 
-▸ Don't colour-drop, copy, or take inspiration from any of my ponies, please.
+⟢ Don't colour-drop, copy, or take inspiration from my ponies, please.
 
-▸ I barely incorporate tone indicators in my messages, but can if requested to. I also appreciate them being used as I can't read tone too well over text.
+⟢ I incorporate tone indicators/tags in my messages when I feel that they're necessary, and I appreciate them being used, as I can't read tones too well.
 
-▸ If I'm bothering you or have done something wrong, please tell me. If I'm clear on my boundaries, I'd appreciate it if you were, too.
+⟢ If I'm bothering you or did something wrong, please tell me. If I'm clear on my boundaries, I'd appreciate it if you were, too.
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details>
 
@@ -62,44 +60,28 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ###
 
-▸ Basic DNI criteria
+⟢ Basic DNI criteria (Darkship/lolitas/proship, MAPs/no MAPs/pedos, homophobic/etc, zionist, zoophiles)
 
-▸ Countryhumans, DreamSMP, Fazclaire's/Five Nights In Anime, Hazbin Hotel/Helluva Boss/VivziePop apologists, Jonochrome apologists, Poppy Playtime devs apologists, South Park, The Coffin of Andy and LeyLey (Fazclaire's/Five Night's In Anime and The Coffin of Andy and LeyLey ponies WILL be hidden on sight)
+⟢ Countryhumans, Dream/QuackitySMP, Fazclaire's/Five Nights in Anime, HB/HH/VivziePop apologists, Jonochrome apologists, Poppy Playtime dev apologists, South Park, The Coffin of Andy and LeyLey
 
-▸ Betilla x Rayman (Betilla's his mum)
+⟢ Betilla x Rayman shippers, Cosmo x Sprout/Fruitcake shippers, Crazy Dave x Dr. Zomboss shippers, Ginger x Sprout shippers, Harlivy shippers, MediScout shippers, ScoutSpy shippers
 
-▸ Cosmo x Sprout/Fruitcake (has been attempted to be shoved down my throat too many times)
+⟢ Nina The Killer
 
-▸ Crazy Dave x Dr. Zomboss (it makes me uncomfortable)
+⟢ Pedo/rape jokes
 
-▸ Ginger x Sprout/Don't Tell Cosmo (same as Crazy Dave x Dr. Zomboss)
-
-▸ Harlivy (same as Fruitcake)
-
-▸ MediScout (Scout could be his son with how big their age gap is 💀)
-
-▸ Nina The Killer
-
-▸ Pedo/rape jokes
-
-▸ Scout x Spy (Scout's his son)
-
-▸ SnuffBomb (creator of Laughing Jack, whom I like, but I do NOT support the creator)
-
-▸ Spawnism
+⟢ SnuffBomb apologists
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
 <details>
 <summary>Interact With Care</summary>
 
-▸ Enemies-to-lovers ships (I dislike them most of the time)
+⟢ Enemies-to-lovers ships
 
-▸ Forsaken, Mouthwashing
+⟢ Forsaken, Mouthwashing
 
-▸ Politics talk
-
-▸ Religion talk (christianity has been attempted to be forced on me before)
+⟢ Politics talk, religion talk
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details></details>
 
