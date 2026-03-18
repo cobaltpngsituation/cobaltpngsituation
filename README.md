@@ -60,6 +60,8 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ###
 
+⟢ AP/DDLG/DDLP
+
 ⟢ Basic DNI criteria (Darkship/lolitas/proship, MAPs/no MAPs/pedos, homophobic/etc, zionist, zoophiles)
 
 ⟢ Countryhumans, Dream/QuackitySMP, Fazclaire's/Five Nights in Anime, HB/HH/VivziePop apologists, Jonochrome apologists, Poppy Playtime dev apologists, South Park, The Coffin of Andy and LeyLey
