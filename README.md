@@ -1,59 +1,64 @@
 <div align="center">
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Homemade+Apple&size=25&pause=3000&color=0047AB&center=true&vCenter=true&width=435&lines=Hey%2C+and+Welcome)](https://git.io/typing-svg)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
 
-[![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=passerby&color=5e9663&labelColor=67a56d)](https://hits.sh/github.com/cobaltsituationiscrazy/)
+[![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=stalkers&color=0047ab&labelColor=0047ab)](https://hits.sh/github.com/cobaltsituationiscrazy/)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
-[Atabook](https://cobaltpng.atabook.org/) • [Pronouns.page](https://en.pronouns.page/@Cobaltpng) • [Straw.Page](https://cobaltpng.straw.page/)
+#### Hey, I'm Cobalt. Allow me to introduce myself, as you most likely found this from one of my ponies.
+
+<details>
+<summary>ⓘ</summary>
 
 ###
 
-Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so let's start with basic information on myself.
+⟢ abv ON's drinking age
 
-⟢ As I'm above ON's drinking age, I appreciate being left out of drama that doesn't have to do with me.
+⟢ she/her, cis/zombiegender, demiromantic + demisexual, heteroromantic and heterosexual
 
-⟢ I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect their boundaries.
+⟢ Foot Soldier (PVZ series) and Zoey (L4D/L4D2) kinnie
 
-⟢ I block freely, based on whether you meet my DNI. Please don't take it personally.
+⟢ ISFP-T, 9w1
 
-⟢ I don't interact first due to shyness and social awkwardness (excluding giving crowns)
+⟢ taken (10.24.20 ❤︎), no e-dating requests or flirting, please
 
-⟢ I have a boyfriend, and will reject any e-dating or flirting request
+🟢 - chilling, interactions enc
 
-⟢ I hop on Pony Town to have it in the background and sit by myself, or with friends. I'm almost always off-tab, so the best way to reach me is through whispers
-
-⟢ I'm naturally quiet, so if I stop talking suddenly, it's nobody's fault. I also tend to zone out a lot.
-
-🟢 - chilling, interactions are ok
-
-💬 - I don't use this.
+💬 - i don't put this on
 
 🎭 - same as above
 
-🌙 - off-tab, whisper to interact
+🌙 - off-tab, w2i
 
 ⛔ - iwc/iwec
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
+</details>
 
 <details>
 <summary>BYI</summary>
 
 ###
 
-⟢ C+H is always allowed as long as it's in my name, and even if I'm sitting with friends (if it's not, it's most likely an OC's preference)
+⟢ As an adult, I appreciate being excluded from drama that doesn't include me, please.
 
-⟢ Don't associate me with my friends. I'm myself, and don't know everything they do and/or say.
+⟢ Colour-dropping, copying, taking inspiration from my ponies 🚫
 
-⟢ Don't colour-drop, copy, or take inspiration from my ponies, please.
+⟢ C+H's always allowed as long as it's in my pony name (if it's not, it's an OC's preference)
 
-⟢ I incorporate tone indicators/tags in my messages when I feel that they're necessary, and I appreciate them being used, as I can't read tones too well.
+⟢ I believe that my OCs are alive in my mind. They feel their own things, have their own boundaries and interests, etc. Certain OCs don't enjoy getting touched w/o permission, so please respect that.
 
-⟢ If I'm bothering you or did something wrong, please tell me. If I'm clear on my boundaries, I'd appreciate it if you were, too.
+⟢ If I'm bothering you or did something wrong, please reach out. If I'm clear on my boundaries, I'd appreciate it if you were, too.
 
-![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details>
+⟢ I incorporate tone indicators/tags when I feel they're necessary. Also, I appreciate them being used as I'm not great w/reading tones.
+
+⟢ Please don't associate my friends with me. I'm myself, not them.
+
+![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
+</details>
 
 <details>
 <summary>DNI + IWC/IWEC</summary>
@@ -62,15 +67,17 @@ Hey, and welcome, I'm Cobalt. You probably found this from one of my ponies, so 
 
 ⟢ AP/DDLG/DDLP
 
-⟢ Basic DNI criteria (Darkship/lolitas/proship, MAPs/no MAPs/pedos, homophobic/etc, zionist, zoophiles)
+⟢ Basic criteria (ableist, com/dark/proshipper, lolitas, MAPs/no MAPs/pedos, homophobic/etc, zionist, zoophiles)
 
 ⟢ Countryhumans, Dream/QuackitySMP, Fazclaire's/Five Nights in Anime, HB/HH/VivziePop apologists, Jonochrome apologists, Poppy Playtime dev apologists, South Park, The Coffin of Andy and LeyLey
 
 ⟢ Betilla x Rayman shippers, Cosmo x Sprout/Fruitcake shippers, Crazy Dave x Dr. Zomboss shippers, Ginger x Sprout shippers, Harlivy shippers, MediScout shippers, ScoutSpy shippers
 
-⟢ Nina The Killer
+⟢ Nina the Killer
 
 ⟢ Pedo/rape jokes
+
+⟢ SH/ED twt
 
 ⟢ SnuffBomb apologists
 
@@ -156,22 +163,12 @@ Canon x oc, Chicken Smoothie, creepypastas, clowns, DC, dragons, Disney, Homestu
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details></details>
 
 <details>
-<summary>Comfort Characters + Kins</summary>
+<summary>Comfort Characters</summary>
 
 ###
 
 Allan Red (Smiling Friends), Bentley, Dimitri, Murray, and Sly (Sly series), Cpt. Feathersword (The Wiggles), Dr. Zomboss, Party Brainz, and Super Brainz (PVZ series), Foxy, Sun, and Toy Freddy (FNAF series), Globox and Rayman (from Rayman 3 specifically), Junkrat (Overwatch), Kamek (Mario), Lemongrab (Adventure Time), Papyrus (Undertale), Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus), The Joker (DC)
-
-![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
-
-<details>
-<summary>Kins</summary>
-
-###
-
-Foot Soldier (PVZ series), Zoey (L4D/L4D2)
-
-![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)</details></details>
+</details>
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
@@ -179,9 +176,4 @@ Foot Soldier (PVZ series), Zoey (L4D/L4D2)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
-![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Blue.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Enjoys%20listening%20to%20music.pngg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Finds%20comfort%20in%20fictional%20characters.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Is%20a%20zombie%20kin.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/is%20an%20artist.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/likes%20fictional%20villains%20but%20doesn't%20justify%20their%20actions.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/likes%20making%20friends.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20blue%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20Coca-Cola.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20horror%20movies.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20horror.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20mushrooms.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20purple%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20rain%2C%20storms%2C%20thunderstorms%20and%20stuff.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20rainy%20nights.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20red%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20the%20moon.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20their%20friends.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20their%20ocs.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20to%20draw.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20to%20listen%20to%20people%20infodump.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Purple.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20collects%20things.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Yelled%20at.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20doesn't%20understand%20social%20cues%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20grew%20up%20with%20Pokemon%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20has%20poor%20memory%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20HATES%20creative%20block.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20hates%20math.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20is%20very%20attached%20to%20their%20stuffies%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20isn't%20diagnosed%20with%20anything%2C%20but%20smth%20ain't%20right%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20likes%20Coach%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20likes%20Nick%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Animal%20Crossing%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Ballora.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Chica.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20coffee.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Foxy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Mangle.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Minecraft%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Puppet.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Slime%20Rancher%202%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20stuffed%20animals.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Sun.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Toy%20Chica.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Toy%20Freddy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20weirdcore.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/really%20loves%20zombies.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20uses%20dark%20mode%20.jpg)
-
-
-
-
-
+![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Blue.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Enjoys%20listening%20to%20music.pngg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Finds%20comfort%20in%20fictional%20characters.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/harasses%20lemonade%20stand%20owners.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Is%20a%20zombie%20kin.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/is%20an%20artist.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/likes%20fictional%20villains%20but%20doesn't%20justify%20their%20actions.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/likes%20making%20friends.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20blue%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20Coca-Cola.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20horror%20movies.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20horror.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20mushrooms.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20purple%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20rain%2C%20storms%2C%20thunderstorms%20and%20stuff.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20rainy%20nights.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20red%20lights.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20the%20moon.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20their%20friends.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20their%20ocs.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20to%20draw.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/loves%20to%20listen%20to%20people%20infodump.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Purple.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20collects%20things.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/Yelled%20at.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20doesn't%20understand%20social%20cues%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20grew%20up%20with%20Pokemon%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20has%20poor%20memory%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20HATES%20creative%20block.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20hates%20math.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20hates%20Vivziepop!.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20is%20a%20flower%20picker%20in%20Minecraft.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20is%20socially%20awkward.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20is%20very%20attached%20to%20their%20stuffies%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20isn't%20diagnosed%20with%20anything%2C%20but%20smth%20ain't%20right%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20keeps%20remembering%20bad%20things.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20likes%20blueberry%20raspberry%20flavored%20candy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20likes%20Coach%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20likes%20Nick%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Animal%20Crossing%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Ballora.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Chica.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20coffee.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20crystals.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20dragons.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Foxy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20jellyfish.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Mangle.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Minecraft%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20oversized%20sweaters!.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20LOVES%20Puppet.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Slime%20Rancher%202%20.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20stuffed%20animals.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Sun.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Toy%20Chica.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20Toy%20Freddy.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20loves%20weirdcore.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/really%20loves%20zombies.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Userboxes/This%20user%20uses%20dark%20mode%20.jpg)
