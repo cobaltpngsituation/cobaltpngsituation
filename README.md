@@ -2,8 +2,6 @@
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Homemade+Apple&size=25&pause=3000&color=0047AB&center=true&vCenter=true&width=435&lines=Hey%2C+and+Welcome)](https://git.io/typing-svg)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
-
 [![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=stalkers&color=0047ab&labelColor=0047ab)](https://hits.sh/github.com/cobaltsituationiscrazy/)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
@@ -184,3 +182,5 @@ Allan Red (Smiling Friends), Bentley, Dimitri, Murray, and Sly (Sly series), Cpt
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 </details>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0m2tgbetpzzj8u1noxf0e2b8h&redirect=true)
