@@ -8,7 +8,7 @@
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Blue%20dividerr.png)
 
-#### Hey, I'm Cobalt. Allow me to introduce myself, as you most likely found this from one of my ponies.
+#### $\color{#0047ab}{\textsf{Hey, I'm Cobalt. Allow me to introduce myself, as you most likely found this from one of my ponies.}}$ 
 
 <details>
 <summary>ⓘ</summary>
