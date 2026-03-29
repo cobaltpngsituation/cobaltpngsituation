@@ -122,7 +122,9 @@ $\color{#5d783a}{\textsf{⟢ Religious talk (I've had Christianity attempted to 
 
 $\color{#5d783a}{\textsf{★ = hyperfixation}}$ 
 
-$\color{#5d783a}{\textsf{Amnesia series, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Deep Rock Galactic, Enter The Gungeon, Fallout series, FNAF series, Fortnite, Garry's Mod, GoBB series, Golf It, GTA V, IDV, L4D + L4D2, Mario in general,)}}$ 
+$\color{#5d783a}{\textsf{Amnesia series, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Deep Rock Galactic, Enter The Gungeon, Fallout series, FNAF series, Fortnite,}}$ 
+
+$\color{#5d783a}{\textsf{Garry's Mod, GoBB series, Golf It, GTA V, IDV, L4D + L4D2, Mario in general,}}$ 
 
 $\color{#5d783a}{\textsf{╰┈➤ ONAF series, Overwatch, Palworld, Payday 2 + 3, Pizza Tower, Plants Vs. Zombies series ★, Pokémon in general ★, Poppy Playtime series, Rayman series ★,}}$
 
