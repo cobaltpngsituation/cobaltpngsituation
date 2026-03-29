@@ -191,8 +191,6 @@ $\color{#5d783a}{\textsf{Papyrus ❤︎ (Undertale), Pinocchio (Shrek), Randall 
 
 $\color{#5d783a}{\textsf{Steve ❤︎ (Blue's Clues), The Joker ❤︎ (DC)}}$</details>
 
-![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
-
 <details>
 <summary>$\color{#5d783a}{\textsf{Stamps and Userboxes}}$</summary>
 
