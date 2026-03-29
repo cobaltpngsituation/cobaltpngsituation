@@ -48,7 +48,9 @@ $\color{#5d783a}{\textsf{⟢ Don't associate me with my friends, please. I don't
 
 $\color{#5d783a}{\textsf{⟢ Getting booped repeatedly or covered intentionally bothers me (I don't have a TD/TT)}}$
 
-$\color{#5d783a}{\textsf{⟢ I believe in my mind, my OCs are alive, feel their own things, have their own boundaries and interests, etc. Certain OCs dislike getting touched w/o permission, so please respect that.)}}$
+$\color{#5d783a}{\textsf{⟢ I believe in my mind, my OCs are alive, feel their own things, have their own boundaries and interests, etc.}}$
+
+$\color{#5d783a}{\textsf{╰┈➤ Certain OCs dislike getting touched w/o permission, so please respect that.}}$
 
 $\color{#5d783a}{\textsf{⟢ I don't accept immediate friend requests as I'd like to know more about you first.}}$
 
@@ -58,7 +60,9 @@ $\color{#5d783a}{\textsf{⟢ If I'm bothering you or did something wrong, please
 
 $\color{#5d783a}{\textsf{⟢ I have a typing quirk I sometimes use that replaces 's' with 'z'. If it bothers you, please tell me, and I can stop.}}$
 
-$\color{#5d783a}{\textsf{⟢ I incorporate tone indicators/tags when I feel they're necessary. Also, I appreciate them being used as I'm bad at reading tones over text.}}$
+$\color{#5d783a}{\textsf{⟢ I incorporate tone indicators/tags when I feel they're necessary.}}$
+
+$\color{#5d783a}{\textsf{Also, I appreciate them being used as I'm bad at reading tones over text.}}$
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -71,7 +75,9 @@ $\color{#5d783a}{\textsf{⟢ AP, DDLG, DDLP}}$
 
 $\color{#5d783a}{\textsf{⟢ Basic DNI criteria (ableist, com/dark/proshipper, lolitas, MAPs/no MAPs/pedos, homo/transphobic/etc, zionist, zoophile}}$
 
-$\color{#5d783a}{\textsf{⟢ Countryhumans, DreamSMP, Fazclaire's/Five Nights in Anime, HB/HH/VivziePop apologists, Jonochrome apologists, Poppy Playtime dev apologists, South Park, The Coffin of Andy and Leyley}}$
+$\color{#5d783a}{\textsf{⟢ Countryhumans, DreamSMP, Fazclaire's/Five Nights in Anime, HB/HH/VivziePop apologists, Jonochrome apologists,}}$ 
+
+$\color{#5d783a}{\textsf{╰┈➤ Poppy Playtime dev apologists, South Park, The Coffin of Andy and Leyley}}$
 
 $\color{#5d783a}{\textsf{⟢ Betilla x Rayman shippers (that's his mum)}}$
 
@@ -116,7 +122,11 @@ $\color{#5d783a}{\textsf{⟢ Religious talk (I've had Christianity attempted to 
 
 $\color{#5d783a}{\textsf{★ = hyperfixation}}$ 
 
-$\color{#5d783a}{\textsf{Amnesia series, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Deep Rock Galactic, Enter The Gungeon, Fallout series, FNAF series, Fortnite, Garry's Mod, GoBB series, Golf It, GTA V, IDV, L4D + L4D2, Mario in general,)}}$ $\color{#5d783a}{\textsf{ONAF series, Overwatch, Palworld, Payday 2 + 3, Pizza Tower, Plants Vs. Zombies series ★, Pokémon in general ★, Poppy Playtime series, Rayman series ★, Roblox, Sly series ★, Sonic in general, Splatoon 2, TF2, Terraria, The Sims 4, TABS, Webfishing, Zuma series}}$
+$\color{#5d783a}{\textsf{Amnesia series, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Deep Rock Galactic, Enter The Gungeon, Fallout series, FNAF series, Fortnite, Garry's Mod, GoBB series, Golf It, GTA V, IDV, L4D + L4D2, Mario in general,)}}$ 
+
+$\color{#5d783a}{\textsf{╰┈➤ ONAF series, Overwatch, Palworld, Payday 2 + 3, Pizza Tower, Plants Vs. Zombies series ★, Pokémon in general ★, Poppy Playtime series, Rayman series ★,}}$
+
+$\color{#5d783a}{\textsf{╰┈➤ Roblox, Sly series ★, Sonic in general, Splatoon 2, TF2, Terraria, The Sims 4, TABS, Webfishing, Zuma series}}$
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -136,7 +146,11 @@ $\color{#5d783a}{\textsf{Dandy's World, Depth Spelunking, Die Of Death, Evade, F
 
 $\color{#5d783a}{\textsf{★ = hyperfixation}}$ 
 
-$\color{#5d783a}{\textsf{American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (with the original cast), Toy Story series)}}$
+$\color{#5d783a}{\textsf{American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI,}}$
+
+$\color{#5d783a}{\textsf{╰┈➤ Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends,}}$
+
+$\color{#5d783a}{\textsf{╰┈➤ The Brave Little Toaster, The Land Before Time, The Wiggles (with the original cast), Toy Story series}}$
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
@@ -144,6 +158,8 @@ $\color{#5d783a}{\textsf{American Dad, Beavis and Butthead, Blue's Clues, Care B
 <summary>$\color{#5d783a}{\textsf{YouTubers}}$</summary>
 
 ###
+
+$\color{#5d783a}{\textsf{★ = hyperfixation}}$ 
 
 $\color{#5d783a}{\textsf{Arlo, Cold Ones, Cr1tiKaL, Fresh Cut Slim ★, Markiplier, MrHalloweenJunkie, Poofesure, Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz}}$
 
@@ -165,7 +181,15 @@ $\color{#5d783a}{\textsf{Canon x oc, Chicken Smoothie, creepypastas, clowns, DC,
 
 $\color{#5d783a}{\textsf{❤︎⁠ = heavy comfort character}}$ 
 
-$\color{#5d783a}{\textsf{Allan Red (Smiling Friends), Bentley ❤︎, Dimitri ❤︎, Murray ❤︎, and Sly ❤︎ (Sly series), Cpt. Feathersword (The Wiggles) ❤︎, Dr. Zomboss ❤︎, Party Brainz ❤︎, and Super Brainz ❤︎ (PVZ series), Foxy ❤︎, Sun, and Toy Freddy (FNAF series), Globox ❤︎ and Rayman ❤︎ (from Rayman 3 specifically), Junkrat (Overwatch), Kamek ❤︎ (Mario), Lemongrab (Adventure Time), Papyrus ❤︎ (Undertale), Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus), Steve ❤︎ (Blue's Clues), The Joker ❤︎ (DC)}}$</details>
+$\color{#5d783a}{\textsf{Allan Red (Smiling Friends), Bentley ❤︎, Dimitri ❤︎, Murray ❤︎, and Sly ❤︎ (Sly series), Cpt. Feathersword (The Wiggles) ❤︎,}}$ 
+
+$\color{#5d783a}{\textsf{Dr. Zomboss ❤︎, Party Brainz ❤︎, and Super Brainz ❤︎ (PVZ series), Foxy ❤︎, Sun, and Toy Freddy (FNAF series),}}$
+
+$\color{#5d783a}{\textsf{Globox ❤︎ and Rayman ❤︎ (from Rayman 3 specifically), Junkrat (Overwatch), Kamek ❤︎ (Mario), Lemongrab (Adventure Time),}}$
+
+$\color{#5d783a}{\textsf{Papyrus ❤︎ (Undertale), Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus),}}$
+
+$\color{#5d783a}{\textsf{Steve ❤︎ (Blue's Clues), The Joker ❤︎ (DC)}}$</details>
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
