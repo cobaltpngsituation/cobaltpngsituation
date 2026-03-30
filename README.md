@@ -9,7 +9,7 @@
 
 ###
 
-$\color{#5d783a}{\textsf{⟢ Cobalt / Dice / my pony's name}}$
+$\color{#5d783a}{\textsf{⟢ Cobalt / Dice / my pony's name / Spade}}$
 
 $\color{#5d783a}{\textsf{⟢}}$ [she](https://en.pronouns.page/@Cobaltpng)$\color{#5d783a}{\textsf{/her}}$
 
