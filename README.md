@@ -19,7 +19,7 @@ $\color{#5d783a}{\textsf{⟢ Foot Soldier (PVZ series) and Zoey (L4D) kinnie}}$
 
 $\color{#5d783a}{\textsf{⟢ happily taken (10.24.20 ❤︎) . no e-dating request or flirting pls}}$
 
-$\color{#5d783a}{\textsf{⟢ ISFP-T . 9w1}}$
+$\color{#5d783a}{\textsf{⟢ ISFJ-T . 9w1}}$
 
 $\color{#58D692}{\textsf{🟢 - chilling, interactions enc}}$
 
