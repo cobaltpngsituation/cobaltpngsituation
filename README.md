@@ -167,7 +167,7 @@ Canon x oc, Chicken Smoothie, creepypastas, clowns, DC, dragons, Disney, Homestu
 
 ###
 
-$\color{#5d783a}{\textsf{*italic* = heavy comfort character}}$ 
+*italic* = heavy comfort character
 
 $\color{#5d783a}{\textsf{Allan Red, *DJ Spit* (Smiling Friends), *Bentley*, Dimitri, *Murray*, and *Sly* (Sly series), *Cpt. Feathersword* (The Wiggles)}}$ 
 
