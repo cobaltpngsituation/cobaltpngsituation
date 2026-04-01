@@ -52,6 +52,8 @@
 
 ⟢ I don't accept immediate friend requests as I'd like to know more about you first.
 
+⟢ I don't interact first due to shyness and social awkwardness (unless I'm crowning a person's pony)
+
 ⟢ I have a typing quirk I sometimes use where I replace 's' with 'z'. If it bothers you, please tell me and I can stop using it.
 
 ⟢ I'm easier to speak to in whispers as I'm usually off-tab.
