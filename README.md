@@ -81,7 +81,7 @@ $\color{#5d783a}{\textsf{╰┈➤ Poppy Playtime dev apologists, South Park, Th
 
 $\color{#5d783a}{\textsf{⟢ Betilla x Rayman shippers (that's his mum)}}$
 
-$\color{#5d783a}{\textsf{⟢ Crazy Dave x Dr. Zomboss shippers, Ginger x Sprout shippers, Globox x Rayman shippers (they make me uncomfortable)}}$
+$\color{#5d783a}{\textsf{⟢ Crazy Dave x Dr. Zomboss shippers, Ginger x Sprout shippers, Globox x Rayman shippers, Luigi x Bowser shippers (they make me uncomfortable)}}$
 
 $\color{#5d783a}{\textsf{⟢ Fruitcake shippers and Harlivy shippers (they've attempted to be shoved down my throat too many times)}}$
 
