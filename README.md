@@ -177,7 +177,7 @@ $\color{#5d783a}{\textsf{Allan Red, *DJ Spit* (Smiling Friends), *Bentley*, Dimi
 
 *Papyrus* (Undertale), Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus),
 
-*Steve* (Blue's Clues), *The Joker* (DC)$</details>
+*Steve* (Blue's Clues), *The Joker* (DC)</details>
 
 <details>
 <summary>Stamps and Userboxes</summary>
