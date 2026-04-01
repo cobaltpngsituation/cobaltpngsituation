@@ -112,7 +112,7 @@
 ###
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Games}}$</summary>
+<summary>Games</summary>
 
 ###
 
