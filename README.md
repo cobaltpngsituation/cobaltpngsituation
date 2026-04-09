@@ -59,7 +59,7 @@ $\color{#5d783a}{\textsf{⟢ AP/DDLG/DDLP}}$
 
 $\color{#5d783a}{\textsf{⟢ Basic DNI}}$
 
-$\color{#5d783a}{\textsf{⟢ Fazclaire's/Five Nights in Anime, HB/HH/VivziePop, Jonochrome, PPT devs, and SnuffBomb apologists, SP, TCOAALL}}$
+$\color{#5d783a}{\textsf{⟢ Fazclaire's/Five Nights in Anime, HB/HH/VivziePop, Jonochrome, PPT devs, Roblox Pressure developers, and SnuffBomb apologists, SP, TCOAALL}}$
 
 $\color{#5d783a}{\textsf{⟢ Betilla x Rayman shippers (Betilla's his mum)}}$
 
