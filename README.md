@@ -73,6 +73,8 @@ $\color{#5d783a}{\textsf{⟢ Fruitcake, and Harlivy shippers (they've attempted 
 
 $\color{#5d783a}{\textsf{⟢ MediScout shippers}}$
 
+$\color{#5d783a}{\textsf{⟢ mentioning of death or growing old (it makes me uncomfy and puts me in a bad headspace)}}$
+
 $\color{#5d783a}{\textsf{⟢ Pedo/rape jokes}}$
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
