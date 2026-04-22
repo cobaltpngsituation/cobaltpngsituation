@@ -63,7 +63,7 @@ Basic criteria (ableist, dark/proshipper, lolitas, MAPs/pedos, homophobic/etc., 
 
 Fazclaire's/Five Nights In Anime, South Park, The Coffin of Andy and Leyley
 
-Forsaken, Grace, and Pressure dev apologists/supporters, HB/HH/VivziePop apologists, Jonochrome apologists, McPig apologists, Poppy Playtime dev apologists, SnuffBomb apologists, TADC creators apologists
+Forsaken, Grace, and Pressure dev apologists/supporters, HB/HH/VivziePop apologists, Jonochrome apologists, McPig apologists, Poppy Playtime dev apologists, SnuffBomb apologists, TADC creators and VA apologists
 
 BowLuigi shippers, Daveboss shippers, StrawberryCookie shippers, Globox x Rayman shippers (all make me uncomfy)
 
