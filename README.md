@@ -34,7 +34,7 @@ As an adult, pls leave me out of drama I'm not included in
 
 Colour-dropping, copying, taking insp. ✖
 
-C+h ✓ if it’s in my pony’s name
+C+h is always allowed unless stated otherwise
  
 Don't associate me with my friends, pls. Idk everything they do/say
 
