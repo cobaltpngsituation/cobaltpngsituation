@@ -7,171 +7,151 @@ $\color{#5d783a}{\textsf{ⓘ best viewed on desktop}}$
 [![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=stalkers&color=5d783a&labelColor=5d783a)](https://hits.sh/github.com/cobaltsituationiscrazy/)
 
 <details>
-<summary>$\color{#5d783a}{\textsf{ⓘ}}$</summary>
+<summary>ⓘ</summary>
 
 ###
-  
-$\color{#5d783a}{\textsf{⟢ Cobalt/Dice/Spade}}$
 
-$\color{#5d783a}{\textsf{⟢ above ON's drinking age}}$
+cobalt ﹕ dice ﹕ spade
 
-$\color{#5d783a}{\textsf{⟢}}$ [she](https://en.pronouns.page/@Cobaltpng)$\color{#5d783a}{\textsf{ /her}}$ 
+abv ON's drinking age﹕12.07 ♐
 
-$\color{#5d783a}{\textsf{⟢ taken (10.24.20 ❤︎)}}$
+[she](https://en.pronouns.page/@Cobaltpng)/her
 
-$\color{#5d783a}{\textsf{⟢ Foot Soldier (PVZ: GW/PVZ:GW2) and Zoey (L4D/L4D2) kinnie}}$
+ISFJ-T﹕9w1
+
+taken﹕10.24.20 💙
+
+foot soldier (pvz:gw/gw2) and Zoey (l4d/l4d2) kinnie
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
 <details>
-<summary>$\color{#5d783a}{\textsf{BYI}}$</summary>
+<summary>BYI</summary>
 
 ###
 
-$\color{#5d783a}{\textsf{⟢ almost always off-tab, w2i}}$
+As an adult, pls leave me out of drama I'm not included in
 
-$\color{#5d783a}{\textsf{⟢ colour-dropping, copying, taking insp. ✖}}$
+Colour-dropping, copying, taking insp. ✖
 
-$\color{#5d783a}{\textsf{⟢ c+h ✓ if it's in my pony's name}}$
+C+h ✓ if it’s in my pony’s name
+ 
+Don't associate me with my friends, pls. Idk everything they do/say
 
-$\color{#5d783a}{\textsf{⟢ don't associate me with my friends. i'm myself, not them.}}$
+I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect that
 
-$\color{#5d783a}{\textsf{⟢ i believe in my mind my OCs are alive, feel their own things, have their own boundaries and interests, etc.}}$ 
+I don't accept friend requests right away, as I'd like to get to know you more first
 
-$\color{#5d783a}{\textsf{Certain OCs don't like getting touched w/o permission, so pls respect that.}}$
+I don’t int first due to shyness and social awkwardness unless I'm crowning your pony
 
-$\color{#5d783a}{\textsf{⟢ i don't accept frqs immediately as i'd like to get to know you more first.}}$
+I have a typing quirk I sometimes use that replaces the letter S with Z. If it bothers you, pls tell me, and I can stop using it
 
-$\color{#5d783a}{\textsf{⟢ i don't int first due to shyness and social awkwardness.}}$
+If I'm bothering you or did smth wrong, pls tell me
 
-$\color{#5d783a}{\textsf{⟢ i have a typing quirk where i replace 's' with 'z'. if it bothers you, pls tell me and i'll stop.}}$
-
-$\color{#5d783a}{\textsf{⟢ if i'm bothering you or did smth wrong, pls tell me. if i'm clear on my boundaries, i'd appreciate it if you also were.}}$
-
-$\color{#5d783a}{\textsf{⟢ i incorporate tone indicators/tags when i feel they're necessary.}}$
+I incorporate tone indicators/tags when I feel they're necessary
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
 <details>
-<summary>$\color{#5d783a}{\textsf{DNI + IWC/IWEC}}$</summary>
+<summary>DNI + IWC/IWEC</summary>
 
 ###
 
-$\color{#5d783a}{\textsf{⟢ AP/DDLG/DDLP}}$
+AP, DDLG, DDLP
 
-$\color{#5d783a}{\textsf{⟢ Basic DNI}}$
+Basic criteria (ableist, dark/proshipper, lolitas, MAPs/pedos, homophobic/etc., zionists, zoophile)
 
-$\color{#5d783a}{\textsf{⟢ Fazclaire's/Five Nights in Anime, HB/HH/VivziePop, Jonochrome, PPT devs,}}$
+Fazclaire's/Five Nights In Anime, South Park, The Coffin of Andy and Leyley
 
-$\color{#5d783a}{\textsf{Roblox Pressure developers, and SnuffBomb apologists, SP, TCOAALL}}$
+Forsaken, Grace, and Pressure dev apologists/supporters, HB/HH/VivziePop apologists, Jonochrome apologists, McPig apologists, Poppy Playtime dev apologists, SnuffBomb apologists
 
-$\color{#5d783a}{\textsf{⟢ Betilla x Rayman shippers (Betilla's his mum)}}$
+BowLuigi shippers, Daveboss shippers, StrawberryCookie shippers, Globox x Rayman shippers (all make me uncomfy)
 
-$\color{#5d783a}{\textsf{⟢ BowsLuigi, Crazy Dave x Dr. Zomboss, Globox x Rayman, and StrawberryCookie shippers (they make me uncomfy)}}$
+Fruitcake shippers, Harlivy shippers (all have been attempted to be forced on me too many times)
 
-$\color{#5d783a}{\textsf{⟢ Fruitcake, and Harlivy shippers (they've attempted to be forced on me too much)}}$
+MediScout shippers, ScoutSpy shippers
 
-$\color{#5d783a}{\textsf{⟢ MediScout shippers}}$
-
-$\color{#5d783a}{\textsf{⟢ mentioning of death or growing old (it makes me uncomfy and puts me in a bad headspace)}}$
-
-$\color{#5d783a}{\textsf{⟢ Pedo/rape jokes}}$
+Pedo/rape jokes
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
-### $\color{#5d783a}{\textsf{IWC/IWEC}}$
+### IWC/IWEC
 
 ###
 
-$\color{#5d783a}{\textsf{⟢ Enemies-to-lovers ships (I dislike them most of the time)}}$
+Enemies-to-lovers ships (I dislike it most of the time)
 
-$\color{#5d783a}{\textsf{⟢ Forsaken, Mouthwashing}}$
+Mouthwashing
 
-$\color{#5d783a}{\textsf{⟢ Political talk, religious talk (I've had Christianity attempted to be forced on me previously)}}$
+Political/religious talk
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details></details>
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Interests}}$</summary>
+<summary>Interests</summary>
 
 ###
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Games}}$</summary>
+<summary>Games</summary>
 
 ###
 
-$\color{#67a56d}{\textsf{67a56d = hyperfixation}}$
+**bold** = hyperfix.
 
-$\color{#5d783a}{\textsf{Amnesia, Animal Crossing, Animal Jam Classic, Bugsnax, Club Penguin, Deep Rock Galactic, Faith: The Unholy Trinity, Fallout, FNAF, Fortnite,}}$
-
-$\color{#5d783a}{\textsf{Garry's Mod, Garten Of Banban, GTA V, Identity V, Left 4 Dead/Left 4 Dead 2, Mario, Marvel Rivals, One Night at Flumpty's, Overwatch, PalWorld,}}$
-
-$\color{#5d783a}{\textsf{Payday 2, Pizza Tower,}}$ $\color{#67a56d}{\textsf{Plants Vs. Zombies,}}$ $\color{#67a56d}{\textsf{Pokemon,}}$ $\color{#5d783a}{\textsf{Poppy Playtime,}}$ $\color{#67a56d}{\textsf{Rayman,}}$ $\color{#5d783a}{\textsf{Roblox,}}$ $\color{#67a56d}{\textsf{Sly,}}$ $\color{#5d783a}{\textsf{Sonic, Splatoon 2, Team Fortress 2, Terraria, Totally Accurate Battle Simulator,}}$
-
-$\color{#5d783a}{\textsf{The Sims 4, Webfishing, Zuma}}$
+Amnesia series, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Deep Rock Galactic, Enter The Gungeon, Fallout series, FNAF series, Fortnite, Garry's Mod, GoBB series, Golf It, GTA V, IDV, L4D + L4D2, Mario in general, ONAF series, Palworld, Payday 2 + 3, Pizza Tower, **Plants Vs. Zombies series**, **Pokémon in general**, Poppy Playtime series, **Rayman series**, Roblox, **Sly series**, Sonic in general, Splatoon 2, TF2, Terraria, The Sims 4, Totally Accurate Battle Simulator, Webfishing, Zuma series
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Roblox games}}$</summary>
+<summary>Roblox games</summary>
 
 ###
 
-$\color{#5d783a}{\textsf{Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured, Fisch, Nico's Nextbots, showcase games}}$
+Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured, Fisch, Nico's Nextbots, showcase games
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Media + YouTubers}}$</summary>
+<summary>Media + YouTubers</summary>
 
 ###
 
-$\color{#5d783a}{\textsf{American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones,}}$
-
-$\color{#5d783a}{\textsf{Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (with the original cast), Toy Story}}$
+American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, TADC, The Brave Little Toaster, The Land Before Time, The Wiggles (w/the original cast), Toy Story series
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
 <details>
-<summary>$\color{#5d783a}{\textsf{YouTubers}}$</summary>
+<summary>YouTubers</summary>
 
 ###
 
-$\color{#67a56d}{\textsf{67a56d = hyperfixation}}$
+**bold** = hyperfix.
 
-$\color{#5d783a}{\textsf{Arlo, Cold Ones, Cr1tiKaL,}}$ $\color{#67a56d}{\textsf{Fresh Cut Slim,}}$ $\color{#5d783a}{\textsf{Markiplier, MrHalloweenJunkie, Poofesure, Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz}}$
+Arlo, Cold Ones, Cr1tiKaL, **Fresh Cut Slim**, Markiplier, MrHalloweenJunkie, Poofesure 。Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details></details>
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Misc.}}$</summary>
+<summary>Misc.</summary>
 
 ###
 
-$\color{#5d783a}{\textsf{Canon x oc, Chicken Smoothie, creepypastas, clowns, DC, dragons, Disney, Homestuck, marine life, Marvel, oc x oc, pirates}}$
+Canon x oc, Chicken Smoothie, creepypastas, clowns, DC, dragons, Disney, Homestuck, marine life, Marvel, oc x oc, pirates
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details></details>
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Comfort Characters}}$</summary>
+<summary>Comfort Characters</summary>
 
 ###
 
-$\color{#67a56d}{\textsf{67a56d = heavy comf.}}$
+*italic* = heavy comf.
 
-$\color{#5d783a}{\textsf{Allan Red,}}$ $\color{#67a56d}{\textsf{DJ Spit (Smiling Friends),}}$ $\color{#67a56d}{\textsf{Bentley,}}$ $\color{#5d783a}{\textsf{Dimitri,}}$ $\color{#67a56d}{\textsf{Murray,}}$ $\color{#5d783a}{\textsf{and}}$ $\color{#67a56d}{\textsf{Sly (Sly),}}$ $\color{#67a56d}{\textsf{Captain Feathersword (The Wiggles),}}$
-
-$\color{#67a56d}{\textsf{Dr. Zomboss, Party Brainz, and Super Brainz (PVZ),}}$, $\color{#67a56d}{\textsf{Foxy}}$, $\color{#5d783a}{\textsf{Sun, and Toy Freddy (FNAF),}}$
-
-$\color{#67a56d}{\textsf{Globox and Rayman (Rayman 2 and 3 specifically),}}$ $\color{#5d783a}{\textsf{Junkrat (Overwatch),}}$ $\color{#67a56d}{\textsf{Kamek (Mario),}}$ $\color{#5d783a}{\textsf{Lemongrab (Adventure Time),}}$
-
-$\color{#67a56d}{\textsf{Papyrus (Undertale),}}$ $\color{#5d783a}{\textsf{Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus),}}$
-
-$\color{#67a56d}{\textsf{Steve (Blue's Clues), The Joker (DC)}}$</details>
+Allan Red (Smiling Friends), *Bentley*, *Dimitri*, *Murray*, and *Sly* (Sly series), *Cpt. Feathersword* (The Wiggles), *Dr. Zomboss*, *Party Brainz*, and *Super Brainz* (PVZ series), *Foxy*, Sun, and Toy Freddy (FNAF series), *Globox* and, *Rayman* (from Rayman 3 specifically), Junkrat (Overwatch), *Kamek* (Mario), Lemongrab (Adventure Time), Papyrus (Undertale), Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus), *Steve* (Blue's Clues), *The Joker* (DC)
 
 <details>
-<summary>$\color{#5d783a}{\textsf{Stamps and Userboxes}}$</summary>
+<summary>Stamps and Userboxes</summary>
 
 ###
 
