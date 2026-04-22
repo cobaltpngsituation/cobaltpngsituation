@@ -63,7 +63,7 @@ Basic criteria (ableist, dark/proshipper, lolitas, MAPs/pedos, homophobic/etc., 
 
 Fazclaire's/Five Nights In Anime, South Park, The Coffin of Andy and Leyley
 
-Forsaken, Grace, and Pressure dev apologists/supporters, HB/HH/VivziePop apologists, Jonochrome apologists, McPig apologists, Poppy Playtime dev apologists, SnuffBomb apologists
+Forsaken, Grace, and Pressure dev apologists/supporters, HB/HH/VivziePop apologists, Jonochrome apologists, McPig apologists, Poppy Playtime dev apologists, SnuffBomb apologists, TADC creators apologists
 
 BowLuigi shippers, Daveboss shippers, StrawberryCookie shippers, Globox x Rayman shippers (all make me uncomfy)
 
@@ -117,7 +117,7 @@ Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured, Fisch, Nico's N
 
 ###
 
-American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, TADC, The Brave Little Toaster, The Land Before Time, The Wiggles (w/the original cast), Toy Story series
+American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (w/the original cast), Toy Story series
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
