@@ -1,6 +1,6 @@
 <div align="center">
 
-$\color{#5d783a}{\textsf{ⓘ best viewed on desktop}}$
+ⓘ best viewed on desktop
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Foot%20Soldier%20wave.gif)
 
