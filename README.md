@@ -40,7 +40,7 @@ Don't associate me with my friends, please. I don't know everything they do/say
 
 I believe my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect this
 
-I don't accept friend requests right away as I'd like to get to know you more first
+I don't accept friend requests right away, as I'd like to get to know you more first
 
 I don't interact first due to shyness and social awkwardness
 
@@ -79,7 +79,7 @@ Pedo/rape jokes
 
 ###
 
-Enemies-to-lovers ships (I dislike it most of the time)
+Enemies-to-lovers ships (I dislike them most of the time)
 
 Mouthwashing
 
