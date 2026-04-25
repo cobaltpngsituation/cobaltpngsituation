@@ -34,19 +34,19 @@ c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
 
 ###
 
-As an adult, pls leave me out of drama I'm not included in
- 
-Don't associate me with my friends, pls. Idk everything they do/say
+As an adult, I appreciate being left out of drama that doesn't involve me
 
-I believe in my mind, my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so pls respect that
+Don't associate me with my friends, please. I don't know everything they do/say
 
-I don't accept friend requests right away, as I'd like to get to know you more first
+I believe my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect this
 
-I don’t int first due to shyness and social awkwardness unless I'm crowning your pony
+I don't accept friend requests right away as I'd like to get to know you more first
 
-I have a typing quirk I sometimes use that replaces the letter S with Z. If it bothers you, pls tell me, and I can stop using it
+I don't interact first due to shyness and social awkwardness
 
-If I'm bothering you or did smth wrong, pls tell me
+I have a typing quirk, replacing S with Z. If it bothers you, please tell me, and I'll stop using it
+
+If I'm bothering you or did something wrong, please tell me
 
 I incorporate tone indicators/tags when I feel they're necessary
 
