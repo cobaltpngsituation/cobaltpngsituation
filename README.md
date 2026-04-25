@@ -23,6 +23,8 @@ taken﹕10.24.20 💙
 
 foot soldier (pvz:gw/gw2) and Zoey (l4d/l4d2) kinnie
 
+c+h heavily enc﹕color-dropping, copying, taking insp. ✖﹕ints enc
+
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
 <details>
@@ -31,10 +33,6 @@ foot soldier (pvz:gw/gw2) and Zoey (l4d/l4d2) kinnie
 ###
 
 As an adult, pls leave me out of drama I'm not included in
-
-Colour-dropping, copying, taking insp. ✖
-
-C+h is always allowed if in my pony's name
  
 Don't associate me with my friends, pls. Idk everything they do/say
 
