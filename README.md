@@ -59,17 +59,17 @@ I incorporate tone indicators/tags when I feel they're necessary
 
 AP, DDLG, DDLP
 
-Basic criteria (ableist, dark/proshipper, lolitas, MAPs/pedos, homophobic/etc., zionists, zoophile)
+Basic criteria (ableist, dark/proshipper, lolitas, MAPs/pedos, homophobic/etc, zionists, zoophile)
 
 Fazclaire's/Five Nights In Anime, South Park, The Coffin of Andy and Leyley
 
 Forsaken, Grace, and Pressure dev apologists/supporters, HB/HH/VivziePop apologists, Jonochrome apologists, McPig apologists, Poppy Playtime dev apologists, SnuffBomb apologists, TADC creators and VA apologists
 
-BowLuigi shippers, Daveboss shippers, StrawberryCookie shippers, Globox x Rayman shippers (all make me uncomfy)
+BowLuigi shippers, Daveboss shippers, MediScout shippers, StrawberryCookie shippers, Globox x Rayman shippers (they make me uncomfortable)
 
-Fruitcake shippers, Harlivy shippers (all have been attempted to be forced on me too many times)
+Fruitcake shippers, Harlivy shippers (both have been forced on me too many times)
 
-MediScout shippers, ScoutSpy shippers
+ScoutSpy shippers
 
 Pedo/rape jokes
 
