@@ -15,7 +15,7 @@
 
 cobalt ﹕ dice ﹕ spade
 
-abv ON's drinking age﹕12.07 ♐
+abv ON's drinking age ﹕ 12.07 ♐
 
 she/her
 
