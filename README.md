@@ -23,7 +23,7 @@ ISFJ-T﹕9w1
 
 taken﹕10.24.20 💙
 
-foot soldier (pvz:gw/gw2) and Zoey (l4d/l4d2) kinnie
+foot soldier (pvz:gw/gw2) and zoey (l4d/l4d2) kinnie
 
 c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
 
