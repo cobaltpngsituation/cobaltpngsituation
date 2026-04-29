@@ -19,13 +19,13 @@ abv ON's drinking age﹕12.07 ♐
 
 she/her
 
-ISFJ-T﹕9w1
+ISFJ-T ﹕ 9w1
 
-taken﹕10.24.20 💙
+taken ﹕ 10.24.20 💙
 
 foot soldier (pvz:gw/gw2) and zoey (l4d/l4d2) kinnie
 
-c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
+c+h heavily enc ﹕ color-dropping, copying, taking insp. ✕ ﹕ ints enc
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -128,7 +128,7 @@ American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (exclu
 
 **bold** = hyperfix.
 
-Arlo, Cold Ones, Cr1tiKaL, **Fresh Cut Slim**, Markiplier, MrHalloweenJunkie, Poofesure 。Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz
+Arlo, Cold Ones, Cr1tiKaL, **Fresh Cut Slim**, Markiplier, MrHalloweenJunkie, Poofesure, Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details></details>
 
