@@ -4,7 +4,7 @@
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Foot%20Soldier%20wave.gif)
 
-[![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=stalkers&color=5d783a&labelColor=5d783a)](https://hits.sh/github.com/cobaltsituationiscrazy/)
+[![Hits](https://hits.sh/github.com/cobaltpng.svg?style=plastic&label=stalkers&color=5d783a&labelColor=5d783a)](https://hits.sh/github.com/cobaltpng/)
 
 [Atabook](https://cobaltpng.atabook.org/)﹕[Guns.lol](https://guns.lol/cobaltpng)﹕[Pronouns.Page](https://en.pronouns.page/@Cobaltpng)﹕[Straw.Page](https://cobaltpng.straw.page/)
 
