@@ -6,26 +6,26 @@
 
 [![Hits](https://hits.sh/github.com/cobaltsituationiscrazy.svg?style=plastic&label=stalkers&color=5d783a&labelColor=5d783a)](https://hits.sh/github.com/cobaltsituationiscrazy/)
 
-[Atabook](https://cobaltpng.atabook.org/)﹕[Pronouns.Page](https://en.pronouns.page/@Cobaltpng)﹕[Straw.Page](https://cobaltpng.straw.page/)
+[Atabook](https://cobaltpng.atabook.org/)﹕[Guns.lol](https://guns.lol/cobaltpng)﹕[Pronouns.Page](https://en.pronouns.page/@Cobaltpng)﹕[Straw.Page](https://cobaltpng.straw.page/)
 
 <details>
 <summary>ⓘ</summary>
 
 ###
 
-cobalt ﹕ dice ﹕ spade
+cobalt﹕dice﹕spade
 
-abv ON's drinking age ﹕ 12.07 ♐
+abv ON's drinking age﹕12.07
 
-she/her
+[she](https://en.pronouns.page/@Cobaltpng)/her
 
-ISFJ-T ﹕ 9w1
+ISFJ-T﹕9w1
 
-taken ﹕ 10.24.20 💙
+10.24.20﹕te ami, mi amor <3
 
 foot soldier (pvz:gw/gw2) and zoey (l4d/l4d2) kinnie
 
-c+h heavily enc ﹕ color-dropping, copying, taking insp. ✕ ﹕ ints enc
+c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -34,21 +34,19 @@ c+h heavily enc ﹕ color-dropping, copying, taking insp. ✕ ﹕ ints enc
 
 ###
 
-As an adult, I appreciate being left out of drama that doesn't involve me
+⟢ as an adult, pls leave me out of drama that doesn't involve me
 
-Don't associate me with my friends, please. I don't know everything they do/say
+⟢ don't associate me with my friends, pls. idk or agree with everything they do/say
 
-I believe my OCs are alive, feel their own things, have their own interests, etc. Certain OCs don't like getting touched w/o permission, so please respect this
+⟢ i believe my ocs are alive in my mind, feel their own things, have their own boundaries & interests, etc. certain ocs don't like getting touched w/o permission, so pls respect that.
 
-I don't accept friend requests right away, as I'd like to get to know you more first
+⟢ i don't accept friend requests right away as i'd like to get to know you more, first.
 
-I don't interact first due to shyness and social awkwardness
+⟢ i replace S with Z as a typing quirk. if it bothers you, pls tell me and i'll stop
 
-I have a typing quirk, replacing S with Z. If it bothers you, please tell me, and I'll stop using it
+⟢ if i'm bothering you or did smth wrong, pls tell me
 
-If I'm bothering you or did something wrong, please tell me
-
-I incorporate tone indicators/tags when I feel they're necessary
+⟢ i incorporate tone indicators/tags when i feel they're necessary
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -57,33 +55,31 @@ I incorporate tone indicators/tags when I feel they're necessary
 
 ###
 
-AP, DDLG, DDLP
+<ins>DNI, will block</ins>
 
-Basic criteria (ableist, dark/proshipper, lolitas, MAPs/pedos, homophobic/etc, zionists, zoophile)
+⟢ AP, DDLG/DDLP
 
-Fazclaire's/Five Nights In Anime, South Park, The Coffin of Andy and Leyley
+⟢ basic dni criteria (ablesit, dark/proshipper, homophobic/etc, lolitas, maps/pedos, zionist, zoophile)
 
-Forsaken, Grace, and Pressure dev apologists/supporters, HB/HH/VivziePop apologists, Jonochrome apologists, McPig apologists, Poppy Playtime dev apologists, SnuffBomb apologists, TADC creators and VA apologists
+⟢ anything to do w/glitch and vivziepop, forsaken and pressure devs supporters, jonochrome apologists, mcpig apologists, ppt dev supporters, snuffbomb apologists
 
-BowLuigi shippers, Daveboss shippers, MediScout shippers, StrawberryCookie shippers, Globox x Rayman shippers (they make me uncomfortable)
+⟢ fazclaire's/five nights in anime, south park, the coffin of andy and leyley
 
-Fruitcake shippers, Harlivy shippers (both have been forced on me too many times)
-
-ScoutSpy shippers
-
-Pedo/rape jokes
+⟢ benturray, bentsly, betilla x rayman, bowluigi, daveboss, globox x rayman, slyrray, strawberrycookie shippers (all make me uncomfy)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
-### IWC/IWEC
+<ins>IWC/IWEC</ins>
 
 ###
 
-Enemies-to-lovers ships (I dislike them most of the time)
+⟢ enemies-to-lovers ships
 
-Mouthwashing
+⟢ forsaken, mouthwashing fans
 
-Political/religious talk
+⟢ fruitcake, harlivy shippers (both have been tried to be forced on me multiple times)
+
+⟢ political/religious talk (christianity has been tried to be forced on me before)
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details></details>
 
