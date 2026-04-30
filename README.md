@@ -1,4 +1,6 @@
 <div align="center">
+
+ⓘ better viewed on desktop
   
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Foot%20Soldier%20wave.gif)
 
