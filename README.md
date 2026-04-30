@@ -1,7 +1,5 @@
 <div align="center">
-
-ⓘ best viewed on desktop
-
+  
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Foot%20Soldier%20wave.gif)
 
 [![Hits](https://hits.sh/github.com/cobaltpng.svg?style=plastic&label=stalkers&color=5d783a&labelColor=5d783a)](https://hits.sh/github.com/cobaltpng/)
