@@ -1,31 +1,25 @@
 <div align="center">
 
-ⓘ better viewed on desktop
-  
-![](https://file.garden/Z0TC-0mCggxGeVLO/Foot%20Soldier%20wave.gif)
-
 [![Hits](https://hits.sh/github.com/cobaltpng.svg?style=plastic&label=stalkers&color=5d783a&labelColor=5d783a)](https://hits.sh/github.com/cobaltpng/)
-
-[Atabook](https://cobaltpng.atabook.org/)﹕[Guns.lol](https://guns.lol/cobaltpng)﹕[Pronouns.Page](https://en.pronouns.page/@Cobaltpng)﹕[Straw.Page](https://cobaltpng.straw.page/)
 
 <details>
 <summary>ⓘ</summary>
 
 ###
 
-cobalt﹕dice﹕spade
+cobalt⠀﹕⠀dice⠀﹕⠀spade
 
-abv ON's drinking age﹕12.07
+abv ON's drinking age⠀﹕⠀12.07⠀﹕⠀canadian
 
-[she](https://en.pronouns.page/@Cobaltpng)/her
+[she](https://en.pronouns.page/@Cobaltpng)⠀﹕⠀her⠀﹕⠀hers
 
-ISFJ-T﹕9w1
+10.24.20⠀﹕⠀te ami, mi amor <3
 
-10.24.20﹕te ami, mi amor <3
+ISFJ-T⠀﹕⠀9w1
 
-foot soldier (pvz:gw/gw2) and zoey (l4d/l4d2) kinnie
+foot soldier from pvz:gw/gw2 kinnie⠀﹕⠀zoey from l4d/l4d2 kinnie
 
-c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
+c×h heavily enc
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -34,19 +28,19 @@ c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
 
 ###
 
-⟢ as an adult, pls leave me out of drama that doesn't involve me
+⟢ don't associate me with my friends. i don't agree with or know everything they do/say.
 
-⟢ don't associate me with my friends, pls. idk or agree with everything they do/say
+⟢ i believe my OCs are alive in my mind, feel their own emotions, have their own boundaries and interests, etc. certain OCs don't like being touched w/o permission, so pls respect this.
 
-⟢ i believe my ocs are alive in my mind, feel their own things, have their own boundaries & interests, etc. certain ocs don't like getting touched w/o permission, so pls respect that.
+⟢ i block/hide freely
 
-⟢ i don't accept friend requests right away as i'd like to get to know you more, first.
+⟢ i don't accept friend requests right away as i'd like to know you better, first.
 
-⟢ i replace S with Z as a typing quirk. if it bothers you, pls tell me and i'll stop
+⟢ i have a typing quirk where i replace S with Z. if it bothers you, pls lmk and i'll stop using it.
 
-⟢ if i'm bothering you or did smth wrong, pls tell me
+⟢ i incorporate tone indicators when i feel they're necessary
 
-⟢ i incorporate tone indicators/tags when i feel they're necessary
+⟢ if i go silent, it's nobody's fault. i tend to go off-tab or zone out a lot
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -59,19 +53,25 @@ c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
 
 ⟢ AP, DDLG/DDLP
 
+⟢ -15
+
 ⟢ basic dni criteria (ablesit, dark/proshipper, homophobic/etc, lolitas, maps/pedos, zionist, zoophile)
 
 ⟢ anything to do w/glitch and vivziepop, forsaken and pressure devs supporters, jonochrome apologists, mcpig apologists, ppt dev supporters, snuffbomb apologists
 
-⟢ fazclaire's/five nights in anime, south park, the coffin of andy and leyley
-
 ⟢ benturray, bentsly, betilla x rayman, bowluigi, daveboss, globox x rayman, slyrray, strawberrycookie shippers (all make me uncomfy)
+
+⟢ drama that doesn't have to do with me
+
+⟢ fazclaire's/five nights in anime, south park, the coffin of andy and leyley
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
 <ins>IWC/IWEC</ins>
 
 ###
+
+⟢ anyone that claims to have 'no dni' list
 
 ⟢ enemies-to-lovers ships
 
@@ -95,16 +95,7 @@ c+h heavily enc﹕color-dropping, copying, taking insp. ✕﹕ints enc
 
 **bold** = hyperfix.
 
-Amnesia series, Animal Crossing, Animal Jam, Bugsnax, Club Penguin, Deep Rock Galactic, Enter The Gungeon, Fallout series, FNAF series, Fortnite, Garry's Mod, GoBB series, Golf It, GTA V, IDV, L4D + L4D2, Mario in general, ONAF series, Palworld, Payday 2 + 3, Pizza Tower, **Plants Vs. Zombies series**, **Pokémon in general**, Poppy Playtime series, **Rayman series**, Roblox, **Sly series**, Sonic in general, Splatoon 2, TF2, Terraria, The Sims 4, Totally Accurate Battle Simulator, Webfishing, Zuma series
-
-![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
-
-<details>
-<summary>Roblox games</summary>
-
-###
-
-Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured, Fisch, Nico's Nextbots, showcase games
+Amnesia, Animal Crossing, Animal Jam, Bugsnax, Castle Crashers, Club Penguin, Crash Bandicoot, Deep Rock Galactic, Enter The Gungeon, Fallout, Faith: The Unholy Trinity, FNAF, Fortnite, GMod, GoBB, Golf It, GTA V, IDV, L4D/L4D2, Mario, ONAF, PalWorld, Payday 2, Pizza Tower, **Plants Vs. Zombies**, **Pokémon**, Poppy Playtime, **Rayman**, Roblox, **Sly**, Sonic, Splatoon 2, Summoners War, Team Fortress 2, Terraria, The Sims, TABS, Webfishing, Zuma
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
@@ -113,7 +104,7 @@ Dandy's World, Depth Spelunking, Die Of Death, Evade, Fractured, Fisch, Nico's N
 
 ###
 
-American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excluding the 2019 movie), Ghost Adventures, HLVRAI, Indiana Jones series, Rick and Morty, Shrek series, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles (w/the original cast), Toy Story series
+Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (excl. 2019), Ghost Adventures, HLVRAI, Indiana Jones, old SML, Rick and Morty, Shrek, Smiling Friends, The Brave Little Toaster, The Land Before Time, The Wiggles, Toy Story
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)
 
@@ -124,7 +115,7 @@ American Dad, Beavis and Butthead, Blue's Clues, Care Bears, Child's Play (exclu
 
 **bold** = hyperfix.
 
-Arlo, Cold Ones, Cr1tiKaL, **Fresh Cut Slim**, Markiplier, MrHalloweenJunkie, Poofesure, Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz
+Arlo, Cold Ones, Cr1tiKaL, Dark Corners, **Fresh Cut Slim**, Markiplier, MrHalloweenJunkie, Poofesure, PopularMMOs, Pyrocynical, SomeOrdinaryGamers, The Librarian, WickedWiz, WizardInATShirt
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details></details>
 
@@ -133,7 +124,7 @@ Arlo, Cold Ones, Cr1tiKaL, **Fresh Cut Slim**, Markiplier, MrHalloweenJunkie, Po
 
 ###
 
-Canon x oc, Chicken Smoothie, creepypastas, clowns, DC, dragons, Disney, Homestuck, marine life, Marvel, oc x oc, pirates
+Animatronics, canon x oc/oc x oc, Chicken Smoothie, creepypastas, clowns, DC, dragons, Disney, Homestuck, marine life, Marvel, pirates
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details></details>
 
