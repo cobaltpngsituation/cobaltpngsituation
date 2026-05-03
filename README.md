@@ -95,7 +95,7 @@ c×h heavily enc
 
 **bold** = hyperfix.
 
-Amnesia, Animal Crossing, Animal Jam, Bugsnax, Castle Crashers, Club Penguin, Crash Bandicoot, Deep Rock Galactic, Enter The Gungeon, Fallout, Faith: The Unholy Trinity, FNAF, Fortnite, GMod, GoBB, Golf It, GTA V, IDV, L4D/L4D2, Mario, ONAF, PalWorld, Payday 2, Pizza Tower, **Plants Vs. Zombies**, **Pokémon**, Poppy Playtime, **Rayman**, Roblox, **Sly**, Sonic, Splatoon 2, Summoners War, Team Fortress 2, Terraria, The Sims, TABS, Webfishing, Zuma
+Amnesia, Animal Crossing, Animal Jam, Bugsnax, Castle Crashers, Club Penguin, Crash Bandicoot, Deep Rock Galactic, Enter The Gungeon, Fallout, Faith: The Unholy Trinity, FNAF, Fortnite, GMod, GoBB, Golf It, GTA V, IDV, L4D/L4D2, Mario, ONAF, PalWorld, Payday 2, Pizza Tower, **Plants Vs. Zombies**, **Pokémon**, Poppy Playtime, **Rayman**, Roblox, **Sly**, Sonic, Splatoon 2, Summoners War, Team Fortress 2, Terraria, The Sims, TABS, Webfishing, Zuma, Yo-kai Watch
 
 ![](https://file.garden/Z0TC-0mCggxGeVLO/Zombie%20dividerr.png)</details>
 
