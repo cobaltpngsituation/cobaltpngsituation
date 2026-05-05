@@ -17,7 +17,7 @@ abv ON's drinking age⠀﹕⠀12.07⠀﹕⠀canadian
 
 ISFJ-T⠀﹕⠀9w1
 
-foot soldier from pvz:gw/gw2 kinnie⠀﹕⠀zoey from l4d/l4d2 kinnie
+agent 8 from splatoon 2 kinnie⠀﹕⠀foot soldier from pvz:gw/gw2 kinnie⠀﹕⠀zoey from l4d/l4d2 kinnie
 
 c×h heavily enc
 
