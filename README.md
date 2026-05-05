@@ -135,7 +135,7 @@ Animatronics, canon x oc/oc x oc, Chicken Smoothie, creepypastas, clowns, DC, dr
 
 *italic* = heavy comf.
 
-Allan Red (Smiling Friends), *Bentley*, *Dimitri*, *Murray*, and *Sly* (Sly series), *Cpt. Feathersword* (The Wiggles), *Dr. Zomboss*, *Party Brainz*, and *Super Brainz* (PVZ series), *Foxy*, Sun, and Toy Freddy (FNAF series), *Globox* and, *Rayman* (from Rayman 3 specifically), Junkrat (Overwatch), *Kamek* (Mario), Lemongrab (Adventure Time), Papyrus (Undertale), Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus), *Steve* (Blue's Clues), *The Joker* (DC)</details>
+Allan Red (Smiling Friends), *Bentley*, *Dimitri*, *Murray*, and *Sly* (Sly series), *Cpt. Feathersword* (The Wiggles), Doctor N. Gin (Crash Bandicoot), *Dr. Zomboss*, *Party Brainz*, and *Super Brainz* (PVZ series), *Foxy*, Sun, and Toy Freddy (FNAF series), *Globox* and, *Rayman* (from Rayman 3 specifically), Junkrat (Overwatch), *Kamek* (Mario), Lemongrab (Adventure Time), Papyrus (Undertale), Pinocchio (Shrek), Randall (Monsters Inc.), Snow Miser (The Year Without a Santa Claus), *Steve* (Blue's Clues), *The Joker* (DC)</details>
 
 <details>
 <summary>Stamps and Userboxes</summary>
